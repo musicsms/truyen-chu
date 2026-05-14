@@ -1,162 +1,162 @@
-# Thiet ke du an nghien cuu va viet truyen kiem hiep
+# Thiết kế dự án nghiên cứu và viết truyện kiếm hiệp
 
-Ngay: 2026-05-13
+Ngày: 2026-05-13
 
-## Muc tieu
+## Mục tiêu
 
-Du an tao mot bo ho so sang tac giup nghien cuu nguyen ly van hanh cua truyen kiem hiep kieu Kim Dung va Co Long, sau do chuyen hoa thanh nen tang cho mot truyen kiem hiep goc.
+Dự án tạo một bộ hồ sơ sáng tác giúp nghiên cứu nguyên lý vận hành của truyện kiếm hiệp kiểu Kim Dung và Cổ Long, sau đó chuyển hóa thành nền tảng cho một truyện kiếm hiệp gốc.
 
-Trong tam khong phai sao chep cau chu, giong van, hay nhan vat cua cac tac gia kinh dien. Trong tam la rut ra nguyen ly: cach xay giang ho, cach dat nhan vat vao dao nghia, cach dung bi mat, cach tao canh dau, cach lap nhip chuong, va cach lam doi thoai co luc.
+Trọng tâm không phải sao chép câu chữ, giọng văn, hay nhân vật của các tác giả kinh điển. Trọng tâm là rút ra nguyên lý: cách xây giang hồ, cách đặt nhân vật vào đạo nghĩa, cách dùng bí mật, cách tạo cảnh đấu, cách lập nhịp chương, và cách làm đối thoại có lực.
 
-Ket qua cuoi cung phai phuc vu viec bat dau viet mot truyen vua 20-40 chuong theo huong co trang lai trinh tham/noir.
+Kết quả cuối cùng phải phục vụ việc bắt đầu viết một truyện vừa 20-40 chương theo hướng cổ trang lai trinh thám/noir.
 
-## Pham vi
+## Phạm vi
 
-Du an gom ba lop dau ra:
+Dự án gồm ba lớp đầu ra:
 
-1. Ho so nghien cuu nguyen ly.
-2. Bo quy tac sang tac rieng.
-3. De cuong truyen goc 20-40 chuong.
+1. Hồ sơ nghiên cứu nguyên lý.
+2. Bộ quy tắc sáng tác riêng.
+3. Đề cương truyện gốc 20-40 chương.
 
-Du an uu tien chieu sau sang tac hon tong hop kien thuc rong. Moi phan nghien cuu phai tra loi duoc cau hoi: nguyen ly nay giup ich gi cho cau chuyen goc?
+Dự án ưu tiên chiều sâu sáng tác hơn tổng hợp kiến thức rộng. Mỗi phần nghiên cứu phải trả lời được câu hỏi: nguyên lý này giúp ích gì cho câu chuyện gốc?
 
-## Ranh gioi
+## Ranh giới
 
-Du an se khong:
+Dự án sẽ không:
 
-- Nhai truc tiep van phong Kim Dung hoac Co Long.
-- Dung nhan vat, mon phai, bi kip, dia danh dac thu cua tac pham da co.
-- Mo rong thanh tien hiep, tu tien, hoac he thong sieu nhien lon.
-- Bien cau chuyen thanh quyen muu cung dinh quy mo lon.
-- Nghien cuu tieu su tac gia neu thong tin do khong phuc vu ky thuat sang tac.
+- Nhại trực tiếp văn phong Kim Dung hoặc Cổ Long.
+- Dùng nhân vật, môn phái, bí kíp, địa danh đặc thù của tác phẩm đã có.
+- Mở rộng thành tiên hiệp, tu tiên, hoặc hệ thống siêu nhiên lớn.
+- Biến câu chuyện thành quyền mưu cung đình quy mô lớn.
+- Nghiên cứu tiểu sử tác giả nếu thông tin đó không phục vụ kỹ thuật sáng tác.
 
-## Huong truyen goc
+## Hướng truyện gốc
 
-Truyen goc se la truyen vua 20-40 chuong, co trang lai trinh tham/noir.
+Truyện gốc sẽ là truyện vừa 20-40 chương, cổ trang lai trinh thám/noir.
 
-Nhan vat chinh la mot cao thu tung co danh trong giang ho, bi vu oan trong mot vu an lon, roi bien mat. Khi mot vu an moi xuat hien voi thu phap tuong tu nam xua, nhan vat bi keo tro lai giang ho va phai lan theo manh moi de tim su that.
+Nhân vật chính là một cao thủ từng có danh trong giang hồ, bị vu oan trong một vụ án lớn, rồi biến mất. Khi một vụ án mới xuất hiện với thủ pháp tương tự năm xưa, nhân vật bị kéo trở lại giang hồ và phải lần theo manh mối để tìm sự thật.
 
-Giong tieng Viet se hien dai, tiet che Han Viet, nhip nhanh, gan tieu thuyet trinh tham hien dai hon co van gia. Chat kiem hiep den tu tinh huong, dao nghia, vo hoc, loi hua, an oan, va gia cua cong ly.
+Giọng tiếng Việt sẽ hiện đại, tiết chế Hán Việt, nhịp nhanh, gần tiểu thuyết trinh thám hiện đại hơn cổ văn giả. Chất kiếm hiệp đến từ tình huống, đạo nghĩa, võ học, lời hứa, ân oán, và giá của công lý.
 
-## Cau truc ho so nghien cuu
+## Cấu trúc hồ sơ nghiên cứu
 
-Moi module nghien cuu co cung mot dinh dang:
+Mỗi module nghiên cứu có cùng một định dạng:
 
-- Chuc nang cua module trong truyen kiem hiep.
-- Nguyen ly thuong thay o Kim Dung va Co Long.
-- Cach chuyen hoa thanh quy tac rieng cho truyen goc.
-- Checklist ap dung khi viet.
-- Loi can tranh.
-- Vi du mini tu viet theo giong rieng.
+- Chức năng của module trong truyện kiếm hiệp.
+- Nguyên lý thường thấy ở Kim Dung và Cổ Long.
+- Cách chuyển hóa thành quy tắc riêng cho truyện gốc.
+- Checklist áp dụng khi viết.
+- Lỗi cần tránh.
+- Ví dụ mini tự viết theo giọng riêng.
 
-### 1. Giang ho va quyen luc
+### 1. Giang hồ và quyền lực
 
-Phan nay nghien cuu cach giang ho van hanh nhu mot xa hoi rieng: mon phai, bang hoi, tieu cuc, quan tro, cho den, danh mon chinh phai, the luc ngam, va nhung luat bat thanh van.
+Phần này nghiên cứu cách giang hồ vận hành như một xã hội riêng: môn phái, bang hội, tiêu cục, quán trọ, chợ đen, danh môn chính phái, thế lực ngầm, và những luật bất thành văn.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- So do cac loai the luc nen dung trong truyen.
-- Nguyen tac tao xung dot giua danh nghia cong khai va loi ich ngam.
-- Checklist giup moi dia diem giang ho co vai tro trong dieu tra, khong chi lam phong nen.
+- Sơ đồ các loại thế lực nên dùng trong truyện.
+- Nguyên tắc tạo xung đột giữa danh nghĩa công khai và lợi ích ngầm.
+- Checklist giúp mỗi địa điểm giang hồ có vai trò trong điều tra, không chỉ làm phông nền.
 
-### 2. Nhan vat trung tam
+### 2. Nhân vật trung tâm
 
-Phan nay nghien cuu cac mau nhan vat: anh hung, lang tu, cao thu co doc, ke bi oan, nguoi thay, tri ky, va phan dien co ly.
+Phần này nghiên cứu các mẫu nhân vật: anh hùng, lãng tử, cao thủ cô độc, kẻ bị oan, người thầy, tri kỷ, và phản diện có lý.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- Ho so nhan vat chinh: qua khu, vet thuong, gioi han dao duc, cach noi, cach ra tay.
-- Bo cau hoi thiet ke nhan vat phu sao cho moi nguoi giu mot manh cua su that.
-- Nguyen tac viet phan dien khong chi ac, ma dai dien cho mot logic quyen luc.
+- Hồ sơ nhân vật chính: quá khứ, vết thương, giới hạn đạo đức, cách nói, cách ra tay.
+- Bộ câu hỏi thiết kế nhân vật phụ sao cho mỗi người giữ một mảnh của sự thật.
+- Nguyên tắc viết phản diện không chỉ ác, mà đại diện cho một logic quyền lực.
 
-### 3. Dao nghia va xung dot noi tam
+### 3. Đạo nghĩa và xung đột nội tâm
 
-Phan nay nghien cuu cac xung dot ve no mau, danh du, loi hua, an oan, tinh va nghia.
+Phần này nghiên cứu các xung đột về nợ máu, danh dự, lời hứa, ân oán, tình và nghĩa.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- Bang cac lua chon dao duc khong sach se cho nhan vat chinh.
-- Quy tac bien moi manh moi thanh mot cai gia, khong chi la thong tin.
-- Checklist de tranh nhan vat noi dao ly thay cho hanh dong trong tinh huong cu the.
+- Bảng các lựa chọn đạo đức không sạch sẽ cho nhân vật chính.
+- Quy tắc biến mỗi manh mối thành một cái giá, không chỉ là thông tin.
+- Checklist để tránh nhân vật nói đạo lý thay cho hành động trong tình huống cụ thể.
 
-### 4. Bi mat va nhip trinh tham/noir
+### 4. Bí mật và nhịp trinh thám/noir
 
-Phan nay thiet ke cach van hanh cua oan an, manh moi, nhan chung gia, danh tinh gia, ky uc bi che khuat, va to chuc dung sau.
+Phần này thiết kế cách vận hành của oan án, manh mối, nhân chứng giả, danh tính giả, ký ức bị che khuất, và tổ chức đứng sau.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- Khung dai an trung tam.
-- Danh sach manh moi that, manh moi gia, va su kien bi hieu sai.
-- Nhip tiet lo theo hoi: moi hoi giai mot cau hoi nhung mo them mot van de lon hon.
+- Khung đại án trung tâm.
+- Danh sách manh mối thật, manh mối giả, và sự kiện bị hiểu sai.
+- Nhịp tiết lộ theo hồi: mỗi hồi giải một câu hỏi nhưng mở thêm một vấn đề lớn hơn.
 
-### 5. Vo hoc va canh dau
+### 5. Võ học và cảnh đấu
 
-Vo hoc khong chi de tao canh hanh dong. Moi mon vo, vet thuong, cach cam kiem, cach ne tranh, hay cach khong ra tay phai tiet lo tinh cach, qua khu, dang cap, hoac triet ly song.
+Võ học không chỉ để tạo cảnh hành động. Mỗi môn võ, vết thương, cách cầm kiếm, cách né tránh, hay cách không ra tay phải tiết lộ tính cách, quá khứ, đẳng cấp, hoặc triết lý sống.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- Nguyen tac viet canh dau ngan, ro, co he qua.
-- He vo hoc vua du dung cho truyen, khong thanh bang chi so hay phep thuat.
-- Checklist de moi canh dau thay doi quan he, thong tin, hoac vi the cua nhan vat.
+- Nguyên tắc viết cảnh đấu ngắn, rõ, có hệ quả.
+- Hệ võ học vừa đủ dùng cho truyện, không thành bảng chỉ số hay phép thuật.
+- Checklist để mỗi cảnh đấu thay đổi quan hệ, thông tin, hoặc vị thế của nhân vật.
 
-### 6. Doi thoai va giong ke
+### 6. Đối thoại và giọng kể
 
-Giong ke uu tien hien dai, sac, ro, va co ap luc ngam. Truyen tranh co van gia va tranh nhai van phong tac gia kinh dien.
+Giọng kể ưu tiên hiện đại, sắc, rõ, và có áp lực ngầm. Truyện tránh cổ văn giả và tránh nhại văn phong tác giả kinh điển.
 
-Dau ra can co:
+Đầu ra cần có:
 
-- Quy tac doi thoai ngan ma co ham y.
-- Danh sach dau hieu cau van bi co hoa qua muc.
-- Vi du mini ve doi thoai dieu tra, doi thoai giang ho, va doi thoai truoc canh dau.
+- Quy tắc đối thoại ngắn mà có hàm ý.
+- Danh sách dấu hiệu câu văn bị cổ hóa quá mức.
+- Ví dụ mini về đối thoại điều tra, đối thoại giang hồ, và đối thoại trước cảnh đấu.
 
-## Bo quy tac sang tac rieng
+## Bộ quy tắc sáng tác riêng
 
-Sau phan nghien cuu, du an se ket tinh thanh mot bo quy tac thuc hanh:
+Sau phần nghiên cứu, dự án sẽ kết tinh thành một bộ quy tắc thực hành:
 
-- Quy tac mo chuong: bat dau bang hanh dong, manh moi, bien co, hoac ap luc dao duc.
-- Quy tac dong chuong: khong chi tao cliffhanger, ma doi lai cach doc gia hieu ve su kien truoc do.
-- Quy tac canh dau: canh dau phai co muc tieu truyen ke ro rang.
-- Quy tac bi mat: doc gia phai co du du kien de nghi ngo, nhung chua du de ket luan qua som.
-- Quy tac giang ho: moi the luc phai co loi ich, so hai, va thu muon che giau.
-- Quy tac nhan vat: nhan vat quan trong phai co viec muon lam ngoai viec giup nhan vat chinh.
-- Quy tac giong van: hien dai, gon, co chat kiem hiep qua lua chon va he qua.
+- Quy tắc mở chương: bắt đầu bằng hành động, manh mối, biến cố, hoặc áp lực đạo đức.
+- Quy tắc đóng chương: không chỉ tạo cliffhanger, mà đổi lại cách độc giả hiểu về sự kiện trước đó.
+- Quy tắc cảnh đấu: cảnh đấu phải có mục tiêu truyện kể rõ ràng.
+- Quy tắc bí mật: độc giả phải có đủ dữ kiện để nghi ngờ, nhưng chưa đủ để kết luận quá sớm.
+- Quy tắc giang hồ: mỗi thế lực phải có lợi ích, sợ hãi, và thứ muốn che giấu.
+- Quy tắc nhân vật: nhân vật quan trọng phải có việc muốn làm ngoài việc giúp nhân vật chính.
+- Quy tắc giọng văn: hiện đại, gọn, có chất kiếm hiệp qua lựa chọn và hệ quả.
 
-## Khung truyen goc
+## Khung truyện gốc
 
-Truyen du kien chia thanh bon hoi.
+Truyện dự kiến chia thành bốn hồi.
 
-### Hoi 1: Oan an va tro lai giang ho
+### Hồi 1: Oan án và trở lại giang hồ
 
-Nhan vat chinh tung la cao thu co danh, bi vu oan trong mot vu an lon va bien mat. Mot vu an moi xuat hien voi thu phap tuong tu nam xua, buoc anh ta quay lai. Hoi nay phai dat cau hoi trung tam: ai da tai hien vu an cu, va tai sao bay gio?
+Nhân vật chính từng là cao thủ có danh, bị vu oan trong một vụ án lớn và biến mất. Một vụ án mới xuất hiện với thủ pháp tương tự năm xưa, buộc anh ta quay lại. Hồi này phải đặt câu hỏi trung tâm: ai đã tái hiện vụ án cũ, và tại sao bây giờ?
 
-### Hoi 2: Manh moi va nguoi cu
+### Hồi 2: Manh mối và người cũ
 
-Nhan vat chinh lan theo dau vet qua cac khong gian giang ho nhu mon phai, quan tro, tieu cuc, cho den, ky vien, phap truong, hoac thanh tran bien gioi. Moi dia diem tiet lo mot phan oan an, dong thoi cho thay giang ho khong phan trang den.
+Nhân vật chính lần theo dấu vết qua các không gian giang hồ như môn phái, quán trọ, tiêu cục, chợ đen, kỹ viện, pháp trường, hoặc thành trấn biên giới. Mỗi địa điểm tiết lộ một phần oan án, đồng thời cho thấy giang hồ không phân trắng đen.
 
-### Hoi 3: Su that bi chia nho
+### Hồi 3: Sự thật bị chia nhỏ
 
-Nhung nguoi tung giup hoac hai nhan vat chinh deu co ly do rieng. Mot phan dien trung gian bi lat mat, nhung ke dung sau that su nam trong he thong danh nghia bao ve trat tu giang ho.
+Những người từng giúp hoặc hại nhân vật chính đều có lý do riêng. Một phản diện trung gian bị lật mặt, nhưng kẻ đứng sau thật sự nằm trong hệ thống danh nghĩa bảo vệ trật tự giang hồ.
 
-### Hoi 4: Rua oan khong dong nghia voi chien thang
+### Hồi 4: Rửa oan không đồng nghĩa với chiến thắng
 
-Nhan vat chinh tim ra su that, nhung phai chon giua cong bo no, cuu mot nguoi quan trong, hoac giu lai mot bi mat de ngan giang ho do mau. Ket truyen khep dai an nhung de lai du vi co doc/noir.
+Nhân vật chính tìm ra sự thật, nhưng phải chọn giữa công bố nó, cứu một người quan trọng, hoặc giữ lại một bí mật để ngăn giang hồ đổ máu. Kết truyện khép đại án nhưng để lại dư vị cô độc/noir.
 
-## Tieu chi thanh cong
+## Tiêu chí thành công
 
-Spec va cac tai lieu tiep theo duoc xem la dat neu:
+Spec và các tài liệu tiếp theo được xem là đạt nếu:
 
-- Nguoi viet co the dung chung de bat dau viet 10 chuong dau.
-- Phan nghien cuu tao ra quy tac dung duoc, khong chi la nhan xet chung.
-- Truyen goc co ban sac rieng, khong dua vao nhai tac gia kinh dien.
-- Boi canh giang ho du ro de tao xung dot, nhung khong phinh thanh bach khoa toan thu.
-- Gioi han 20-40 chuong van kha thi voi mot dai an trung tam.
+- Người viết có thể dùng chúng để bắt đầu viết 10 chương đầu.
+- Phần nghiên cứu tạo ra quy tắc dùng được, không chỉ là nhận xét chung.
+- Truyện gốc có bản sắc riêng, không dựa vào nhại tác giả kinh điển.
+- Bối cảnh giang hồ đủ rõ để tạo xung đột, nhưng không phình thành bách khoa toàn thư.
+- Giới hạn 20-40 chương vẫn khả thi với một đại án trung tâm.
 
-## Buoc tiep theo
+## Bước tiếp theo
 
-Sau khi spec nay duoc duyet, buoc tiep theo la lap ke hoach trien khai chi tiet cho bo ho so:
+Sau khi spec này được duyệt, bước tiếp theo là lập kế hoạch triển khai chi tiết cho bộ hồ sơ:
 
-1. Lap danh sach tai lieu nghien cuu can tao.
-2. Xac dinh thu tu viet cac module.
-3. Tao template cho moi module nghien cuu.
-4. Tao template de cuong truyen va ho so nhan vat.
-5. Len moc hoan thanh tung dau ra.
+1. Lập danh sách tài liệu nghiên cứu cần tạo.
+2. Xác định thứ tự viết các module.
+3. Tạo template cho mỗi module nghiên cứu.
+4. Tạo template đề cương truyện và hồ sơ nhân vật.
+5. Lên mốc hoàn thành từng đầu ra.

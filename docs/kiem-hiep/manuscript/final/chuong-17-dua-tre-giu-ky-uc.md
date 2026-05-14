@@ -1,0 +1,237 @@
+# Chương 17: Đứa trẻ giữ ký ức
+
+A Trạm bị bắt vào lúc trời chưa sáng hẳn.
+
+Không phải trong lúc ngủ. Từ khi rời bến dưới, cậu ngủ rất ít. Cậu bị bắt khi đi lấy nước ở giếng sau kho lưới, nơi nhóm Lục Tầm tạm trú. Một cái giếng cạn, hai bức tường thấp, một cây sung già, một lối thoát ra bến. Tất cả đều đã được Lục Tầm xem qua. Nhưng người bắt A Trạm không đi bằng lối người sống.
+
+Chúng đi qua mái.
+
+Khi Lục Tầm nghe tiếng ngói vỡ, A Trạm đã bị kéo lên khỏi mặt đất bằng một sợi dây quấn ngang ngực. Cậu kịp rút dao, cắt vào dây, nhưng dây không phải thừng. Kim tuyến bọc vải. Không cắt ngay, nhưng đủ siết đau. Một mũi kim cắm vào cổ cậu. Thuốc mê vào nhanh.
+
+Lục Tầm phóng kiếm.
+
+Kiếm cắt đứt một đầu dây, nhưng đầu còn lại đã kéo A Trạm qua mái kho bên cạnh. Trên ngói còn lại một vệt máu nhỏ từ tay cậu và một mảnh giấy buộc bằng chỉ xanh.
+
+Bạch Yên nhặt giấy.
+
+Nội dung rất ngắn:
+
+Mảnh sổ đổi đứa trẻ. Bến Nam. Canh ba. Đừng mang người nghiệm thi.
+
+Tô Nghi đọc xong, mặt lạnh đi. "Hắn biết tay ta chưa dùng được."
+
+"Hắn biết nhiều hơn thế," Lục Tầm nói.
+
+Cố Hoài Sương mới trở về trước đó chưa đầy một canh, áo rách, tóc cắt ngắn, hồ sơ gốc giấu trong áo. Nàng đứng dựa vách, chân còn run vì chạy. Khi nghe A Trạm bị bắt, nàng không xin nghỉ. Nàng chỉ mở hồ sơ, lấy trang ghi tên Trạm Bình ra đặt cạnh mảnh giấy của Phương Độ.
+
+"Hắn cần A Trạm vì ký ức chiếc đèn," nàng nói. "Không chỉ để ép chúng ta."
+
+Bạch Yên ôm hộp đàn. Trong hộp là mảnh sổ của cha nàng. Nếu giao, họ mất chứng cứ. Nếu không giao, A Trạm chết hoặc bị biến thành chứng cứ giả khác.
+
+"Ta đi," nàng nói.
+
+"Không," Lục Tầm đáp.
+
+"Mảnh sổ của ta."
+
+"Nên hắn muốn cô đi."
+
+"Vậy ai đi?"
+
+Lục Tầm nhìn mảnh giấy. "Ta."
+
+Tô Nghi cười nhạt. "Dĩ nhiên. Vì bẫy ghi tên ngươi mà."
+
+"Bẫy không quan trọng. Người trong bẫy mới quan trọng."
+
+Họ chuẩn bị trước canh ba.
+
+Cố Hoài Sương chép lại mảnh sổ của Bạch Yên bằng tay. Không đủ thay bản gốc trước án, nhưng đủ để nếu bản gốc mất, nội dung không mất hết. Tô Nghi bọc một gói thuốc tỉnh vào lớp vải nhỏ, đưa Lục Tầm.
+
+"Nếu A Trạm còn thở nhưng không tỉnh."
+
+"Còn nếu không thở?"
+
+"Đừng hỏi ta câu ngu trước khi đi cứu người."
+
+Bạch Yên lấy mảnh sổ thật ra. Nàng không đưa ngay. Nàng nhìn nó rất lâu. Những con số trên đó không chỉ là chứng cứ. Chúng là cách cha nàng còn nói được sau bảy năm.
+
+"Nếu mất," nàng nói, "ta sẽ hận ngươi."
+
+"Nếu giữ mà A Trạm chết, cô cũng hận ta."
+
+"Phải."
+
+"Vậy cứ hận sau."
+
+Nàng đưa mảnh sổ.
+
+Bến Nam là nơi hàng cũ bị bỏ. Không rộng như bến hàng Đông Khẩu, không chết như bến Không Đèn. Nó nằm giữa hai loại bóng tối: bóng tối của thứ bị quên và bóng tối của thứ được cố tình để trống. Canh ba, sương từ sông kéo vào, làm cọc gỗ mờ đi.
+
+A Trạm bị treo trên cần cẩu hàng.
+
+Hai tay cậu bị trói cao, chân không chạm đất. Đầu gục xuống. Dưới chân cậu là một đống lưới cũ, có thể đỡ rơi nếu người thả dây muốn cậu sống. Phương Độ đứng bên cạnh trục quay. Tay trái hắn băng kín sau trận bến hàng, nhưng các ngón vẫn động được. Kim tuyến quấn qua trục cẩu, qua cột, qua tay hắn.
+
+"Ngươi đến đúng giờ," hắn nói.
+
+"Ngươi vẫn nói thừa."
+
+"Nói thừa làm người nghe bực. Người bực dễ sai."
+
+Lục Tầm đặt túi vải chứa mảnh sổ xuống nền.
+
+"Thả người."
+
+"Ta thích thứ tự ngược lại."
+
+"Ta không."
+
+Phương Độ cười. "Ngươi nghĩ mình đang mặc cả? Đứa trẻ này giữ thứ còn hơn giấy. Nó thấy đèn. Nó nghe cha nó. Nó là phần sổ biết thở. Ngươi nên mừng ta chưa cắt cổ nó để lấy yên tĩnh."
+
+A Trạm khẽ động. Còn sống.
+
+Lục Tầm hạ tay khỏi chuôi kiếm. "Ngươi muốn mảnh sổ hay muốn ta rút kiếm?"
+
+"Cả hai nếu được."
+
+Trên mái kho bên trái, một bóng người rất nhẹ dịch chuyển. Bạch Yên. Trên kho bên phải, Cố Hoài Sương nằm sát mái, tay giữ nỏ nhỏ lấy từ tiêu cục. Tô Nghi không được mang đến, đúng như yêu cầu. Nhưng không ai nói nàng không được ở xa, dưới một thuyền nhỏ ngoài sông, chờ người bị thương.
+
+Phương Độ biết có thể có người. Hắn vẫn tự tin, vì A Trạm treo trên dây của hắn. Một cái giật tay trái đủ cắt qua cổ tay cậu hoặc thả cậu rơi sai góc.
+
+Lục Tầm đá túi vải về phía hắn.
+
+Túi trượt trên nền ướt, dừng cách Phương Độ ba bước. Hắn không cúi. Một người áo đen từ bóng cột bước ra, nhặt túi, mở kiểm tra. Trong túi có mảnh giấy bọc da.
+
+Hắn gật.
+
+Phương Độ kéo dây.
+
+A Trạm hạ xuống nửa thước, rồi dừng.
+
+"Hết," Lục Tầm nói.
+
+"Ta đổi ý."
+
+Lục Tầm thở ra.
+
+Không phải vì ngạc nhiên.
+
+Vì đến nhịp đã tính.
+
+Anh rút kiếm, nhưng không chém Phương Độ. Anh chém vào trục cẩu.
+
+Kiếm mưa không mạnh nhất ở chém người. Nó mạnh ở chém đúng chỗ một vật đang chịu lực. Trục cẩu cũ, gỗ ẩm, đã bị Lục Tầm quan sát từ lúc vào bến. Một nhát cắt xiên vào chỗ nứt làm trục lệch. Dây kim tuyến căng qua trục mất góc. Phương Độ giật tay, nhưng lực không truyền như hắn muốn.
+
+Trên mái, Bạch Yên thả lưới.
+
+Lưới cũ rơi xuống giữa Phương Độ và người áo đen cầm túi. Cố Hoài Sương bắn nỏ. Không nhắm người, nhắm dây buộc chân cần cẩu. Dây đứt. A Trạm rơi.
+
+Lục Tầm lao tới, nhưng không kịp đỡ.
+
+Đống lưới dưới chân cậu bật lên vì đã được A Trạm tự móc một đầu vào cọc trước khi mê hoàn toàn. Cậu rơi vào lưới, đau đến tỉnh, nhưng không gãy cổ.
+
+Phương Độ cười lớn. "Tốt. Đứa trẻ cũng học trò của ngươi."
+
+Hắn không cố giết A Trạm nữa. Hắn chộp mảnh sổ từ tay người áo đen, cắt lưới bằng kim tuyến, lùi về phía thuyền nhỏ đã chờ sẵn.
+
+Lục Tầm đuổi theo.
+
+Vai phải vừa băng ở bến hàng rách lại ngay nhát thứ hai. Anh biết, nhưng vẫn tiến. Phương Độ dùng tay trái bị thương điều dây kém hơn trước, nhưng vẫn đủ nguy hiểm. Hai người đánh qua ba cọc gỗ, một xe hàng gãy, một mái lều thấp. Lục Tầm ép được hắn đến mép nước.
+
+"Mảnh sổ không cứu được ngươi," anh nói.
+
+"Ta đâu cần nó cứu." Phương Độ giơ mảnh giấy lên. "Ta chỉ cần người khác thiếu nó."
+
+Hắn thả mình xuống sông.
+
+Không phải rơi. Dưới nước có người chờ. Một chiếc thuyền đen trồi ra, đón hắn, rồi lẩn vào sương. Lục Tầm phóng kiếm theo, chém đứt một mảng mui, nhưng không trúng người.
+
+Khi anh quay lại, A Trạm đang ngồi trên nền, ho dữ dội. Bạch Yên quỳ cạnh cậu, mặt trắng vì mảnh sổ đã mất. Cố Hoài Sương giữ người áo đen còn sống bằng mũi nỏ dí vào gáy.
+
+Tô Nghi chèo thuyền vào bến, nhảy lên dù tay còn đau. Nàng kiểm tra cổ A Trạm trước, rồi tát nhẹ vào mặt cậu.
+
+"Tỉnh đủ chưa?"
+
+A Trạm ho ra máu loãng. "Cô lúc nào cũng chào người ta vậy?"
+
+"Người sống mới than phiền."
+
+Lục Tầm đưa gói thuốc tỉnh. Tô Nghi ngửi, gật, cho A Trạm uống.
+
+"Ta nhớ thêm," A Trạm nói sau một lúc.
+
+Không ai hỏi ngay. Họ đã học được rằng ký ức của cậu thường đi kèm giá.
+
+"Đêm đó, sau khi người cầm đèn đi khỏi bến, có xe muối đến. Ta nằm trong bụi lau, thấy họ mang chiếc đèn lên xe. Không phải xe tiêu cục. Xe có dấu Vạn Thạch."
+
+Bạch Yên nhắm mắt. Mảnh sổ mất, nhưng A Trạm vừa trả lại một con đường.
+
+Cố Hoài Sương hỏi người áo đen: "Phương Độ đi đâu?"
+
+Hắn im.
+
+Tô Nghi lấy cây kim dài ra. "Ta đang đau tay, nên độ chính xác kém. Ngươi muốn ta hỏi bằng tay nào?"
+
+Người áo đen nuốt nước bọt.
+
+"Kho muối," hắn nói. "Canh ba ngày mai. Hắn bảo nếu các ngươi muốn người giữ đèn, đến kho muối Vạn Thạch."
+
+Bạch Yên đứng dậy, đi đến trước mặt hắn. "Ai nhận mảnh sổ?"
+
+Người áo đen nhìn nàng, rồi nhìn Tô Nghi. Có lẽ hắn quyết định người cầm kim đáng sợ hơn người cầm đàn. "Phương Độ."
+
+"Sau Phương Độ?"
+
+"Ta không biết."
+
+Bạch Yên tát hắn.
+
+Cú tát không mạnh bằng thù hận trong mắt nàng. "Mảnh giấy đó là giọng của cha ta."
+
+Người áo đen cúi đầu, má đỏ lên. "Ta chỉ nhận tiền giữ bến."
+
+"Ai trả?"
+
+"Người của kho muối. Không mặc áo trắng. Nhưng đi cùng người có lệnh bài."
+
+Cố Hoài Sương ghi lại từng chữ bằng mẩu than lên mảnh ván. Nàng đã mất thẻ bài, nhưng chưa mất thói quen biến lời nói thành chứng cứ.
+
+A Trạm nhìn Bạch Yên. "Giờ cô biết mất một mảnh là thế nào."
+
+Nàng quay lại. "Ta biết từ bảy năm trước."
+
+"Không. Bảy năm trước cô còn có bài hát. Còn hộp đàn. Còn Quán Mưa. Giờ cô mới biết cảm giác nhìn người khác cầm thứ duy nhất mình nhớ được rồi chạy mất."
+
+Bạch Yên không đáp được.
+
+Lục Tầm để sự im lặng ấy kéo dài. Nó không làm họ gần nhau hơn, nhưng làm lời tiếp theo bớt giả.
+
+Cuối cùng Bạch Yên nói: "Nếu lấy lại được mảnh sổ, ta để ngươi đọc trước."
+
+A Trạm cười khan. "Ta không đọc giỏi."
+
+"Vậy ta hát lại cho ngươi nghe. Không giấu nhịp."
+
+Đó không phải lời xin lỗi. Nhưng trong giang hồ lúc này, một lời hứa không giấu nhịp cũng đã là thứ hiếm.
+
+Tô Nghi trói lại người áo đen, lần này dùng dây thừng thường. "Người này giữ được đến sáng thì giao cho ai?"
+
+Cố Hoài Sương nhìn về phía pháp trường. "Không thể giao Hội Thanh Luật."
+
+"Quan phủ?"
+
+"Quan phủ sẽ giao lại Hội Thanh Luật trước bữa trưa."
+
+Lục Tầm nhìn dòng sông. "Giữ hắn sống đến khi có người đủ đông để nghe."
+
+"Dân trấn?"
+
+"Dân trấn từng nghe bản án bảy năm trước. Họ cũng phải nghe người được thuê giữ bến nói mình được trả bởi kho muối."
+
+Người áo đen rùng mình. Với hắn, bị giết có lẽ còn dễ hơn bị đặt trước đám đông. Người nhận tiền làm việc trong bóng tối thường sợ ánh sáng hơn sợ dao.
+
+Ngoài sông, sương đã nuốt chiếc thuyền của Phương Độ. Trong tay hắn là mảnh sổ của Bạch Yên. Trong đầu A Trạm là chiếc đèn. Trong áo Cố Hoài Sương là hồ sơ gốc thiếu trang cuối.
+
+Mỗi người còn lại một phần sự thật.
+
+Và Phương Độ vừa chọn nơi để ghép chúng lại: kho muối Vạn Thạch, nơi tiền từng đi ra trước khi máu chảy vào bến Không Đèn.

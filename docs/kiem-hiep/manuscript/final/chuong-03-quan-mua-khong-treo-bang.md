@@ -1,0 +1,333 @@
+# Chương 3: Quán Mưa không treo bảng
+
+Trấn Hồi Phong không đóng cổng ban đêm.
+
+Nó không cần. Người muốn vào trấn sau canh ba thường đã mang theo một lý do đủ nặng để khỏi sợ cổng. Người muốn ra khỏi trấn vào giờ ấy phần lớn không ra được, vì mọi bến thuyền đều có người của tiêu cục, mọi quán trọ đều có người nghe ngóng, và mọi mái hiên đều có ít nhất một đôi mắt sau khe cửa.
+
+Lục Tầm vào bằng đường mương phía tây.
+
+Nước mương chỉ sâu đến gối nhưng lạnh, đen, bốc mùi vỏ cá và rau úng. Anh đi dọc theo nó gần nửa dặm để tránh bến chính. Áo tơi lấy từ người áo xám dính sát vào vai. Thanh kiếm bọc vải nằm sau lưng, còn mảnh vải dầu có mùi pháp trường và sợi kim tuyến nằm trong tay áo trong. Mỗi lần tay anh chạm vào chúng, anh nhớ căn lều đang cháy và giọng Tư Béo nói dối trong khói: chết rồi, lửa nhanh quá.
+
+Lão Lâm đã chết ở hạ lưu.
+
+Nhưng Lục Tầm chưa sống lại hẳn. Một cái tên muốn trở về cũng phải tìm được chỗ đứng giữa những người từng chôn nó.
+
+Trên phố Nam, nhà Ngô Tự bị niêm phong.
+
+Dải giấy niêm của Hội Thanh Luật dán chéo qua cửa, ướt mưa nhưng chưa bong. Hai người áo trắng viền đen đứng dưới mái hiên. Một người trẻ, tay đặt trên chuôi đao, mắt nhìn từng bóng người qua phố. Người còn lại lớn tuổi hơn, đứng rất yên, như thể chỉ cần yên đủ lâu thì cả con phố sẽ tự thú.
+
+Lục Tầm đi ngang qua ở bên kia đường, đầu cúi thấp. Anh không dừng lại. Chỗ người chết nằm hiếm khi giữ câu trả lời đầu tiên. Câu trả lời đầu tiên thường nằm trong miệng người đã đến nhìn xác rồi bỏ đi quá nhanh.
+
+Ở Hồi Phong, người như vậy không đến nha môn. Họ đến quán rượu, nhà chứa, tiệm thuốc, bến hàng, hoặc một nơi không treo bảng.
+
+Tư Béo từng nhắc đến nơi ấy trong một đêm say. Hắn nói nếu có ngày lão Lâm muốn bán một chuyện không nên kể, hãy tìm mái ngói lúc nào cũng ướt ở cuối hẻm Tứ Thủy. Lão Lâm khi ấy hỏi chuyện gì không nên kể. Tư Béo đáp: chuyện đủ làm người mua sống thêm một ngày.
+
+Lục Tầm rẽ vào hẻm Tứ Thủy.
+
+Hẻm hẹp đến mức hai người mang đao không thể tránh nhau mà không quay vai. Nước từ mái nhà nhỏ xuống thành từng vệt. Hai bên tường có nhiều dấu tay cũ, những dấu tay của người say, người bị thương, người từng vịn vào đó trước khi nôn hoặc trước khi chết. Cuối hẻm không có bảng hiệu, chỉ có một cánh cửa gỗ thấp và một mái ngói sẫm màu như vừa được mưa chọn riêng.
+
+Bên trong có tiếng đàn.
+
+Không phải loại đàn để mua vui. Tiếng đàn rất thấp, mỗi âm đều giữ lại nửa đường, như người chơi không muốn nó bay quá xa. Lục Tầm đẩy cửa.
+
+Quán Mưa nhỏ hơn lời đồn.
+
+Ba bàn ở gian ngoài. Một quầy rượu. Một cầu thang lên gác. Một rèm trúc che lối sau. Đèn treo thấp, ánh sáng vàng đục, đủ nhìn chén rượu nhưng không đủ nhớ mặt người. Khách trong quán không đông. Hai phu bến ngồi sát cửa, giả vờ chơi xúc xắc. Một người bán thuốc dạo ngủ gật bên bếp than. Trên gác có bóng áo đỏ sau rèm. Ở góc trong cùng, một người đang gảy đàn.
+
+Khi Lục Tầm bước vào, không ai nhìn anh quá lâu.
+
+Đó là dấu hiệu đầu tiên cho thấy nơi này đắt.
+
+Chủ quán là một người đàn ông cụt mất ngón út tay trái. Ông lau chén bằng khăn khô, nhìn áo tơi của Lục Tầm, nhìn bùn trên ống quần, rồi nhìn vết cắt dưới tai anh. Mắt ông dừng ở vết cắt lâu hơn nửa nhịp.
+
+"Khách uống gì?"
+
+"Tin."
+
+"Tin bán bên kia đường."
+
+"Bên kia đường bán tin để người nghe chết nhanh hơn."
+
+Chủ quán đặt cái chén xuống. Tiếng sứ chạm gỗ rất nhỏ, nhưng phu bến gần cửa ngừng lắc xúc xắc. Người bán thuốc dạo không ngủ nữa.
+
+"Tin loại đó," chủ quán nói, "không bán cho người che mặt."
+
+Lục Tầm tháo nón, đặt lên bàn gần quầy.
+
+Không khí trong quán đổi hẳn.
+
+Không ai gọi tên anh. Không ai đứng dậy. Nhưng những người trong quán đều biết cách im lặng khác đi. Im lặng của người không biết thì rỗng. Im lặng của người biết mà không muốn liên lụy thì đặc, nặng và có cạnh.
+
+Chủ quán nhìn anh một lúc lâu.
+
+"Quán Mưa không nhận người chết," ông nói.
+
+"Ta vừa chết ở hạ lưu."
+
+"Chết giả không tính."
+
+"Vậy ghi nợ."
+
+Một tiếng đàn lạc nhịp ở góc trong.
+
+Người gảy đàn là một cô gái mặc áo xanh sẫm. Nàng ngồi sau tấm bình phong vẽ cành trúc. Tóc buộc thấp, cổ tay trắng, ngón tay đặt trên dây đàn không có móng dài. Người đánh đàn kiếm cơm thường để móng. Người đánh đàn để giấu tay thì không.
+
+Nàng ngẩng lên. Ánh đèn làm mắt nàng tối hơn.
+
+"Để hắn ngồi," nàng nói.
+
+Chủ quán không cãi. Ông rót một chén rượu, đặt trước mặt Lục Tầm, rồi lui vào bóng tối sau quầy.
+
+Cô gái áo xanh đứng dậy, đi đến bàn đối diện anh. Nàng không mang hương phấn đậm như các ca kỹ ở bến. Trên áo nàng có mùi mưa, mùi gỗ đàn và một chút mùi khói cũ.
+
+"Ngươi đến muộn," nàng nói.
+
+"Ta không biết có hẹn."
+
+"Người được gọi tên bằng giấy ghim vào cột lều thường nên đi nhanh hơn."
+
+Lục Tầm đặt tay dưới bàn, chạm vào chuôi kiếm. Không rút.
+
+"Cô đưa thư?"
+
+"Nếu ta đưa, ngươi đã gặp ta ngoài bãi lau, không phải ở đây."
+
+"Vậy cô biết người đưa."
+
+"Ở Quán Mưa, biết và nói là hai việc tính giá khác nhau."
+
+Nàng ngồi xuống. Chủ quán mang thêm một chén rượu nhưng nàng không uống. Lục Tầm cũng không. Hai chén rượu nằm giữa họ, trong veo, vô dụng.
+
+"Tên cô?"
+
+"Người mua tin hỏi giá trước khi hỏi tên."
+
+"Ta hỏi để biết sau này quên ai."
+
+Lần đầu nàng cười. Nụ cười rất mỏng. "Bạch Yên."
+
+Cái tên rơi xuống bàn nhẹ như tàn thuốc. Hai phu bến gần cửa đứng dậy rời quán. Người bán thuốc dạo cúi đầu ngủ tiếp, nhưng tay hắn đã đặt lên túi kim dưới áo. Chủ quán quay lưng lau cái chén đã sạch.
+
+Bạch Yên thấy hết, nhưng làm như không thấy.
+
+"Ngô Tự trước khi chết đang chép lại một đơn kiện cũ," nàng nói.
+
+"Ai thuê ông ấy chép?"
+
+"Một người không để tên."
+
+"Người đó sống không?"
+
+"Tối qua thì còn."
+
+Lục Tầm nhìn nàng.
+
+Bạch Yên đặt lên bàn một mảnh giấy nhỏ. Giấy bị xé từ sổ chép đơn, mép còn dính bột hồ. Trên đó có một hàng chữ: người cầm đèn đã chết. Nét chữ không phải nét trên mảnh giấy ghim ở lều anh. Chữ này già hơn, chậm hơn, có chỗ run vì tay người viết.
+
+"Chữ Ngô Tự," Bạch Yên nói. "Ông ấy chép lại câu này ba lần."
+
+"Vì sao?"
+
+"Vì lần đầu mực nhòe. Lần hai ông ấy viết sai chữ đèn thành chữ án. Lần ba ông ấy dừng lại rất lâu."
+
+"Cô ở đó?"
+
+"Ta ở ngoài cửa."
+
+"Nghe lén?"
+
+"Mua tin mà chê người bán nghe lén thì hơi khó sống trong giang hồ."
+
+Nàng nói đều, nhưng khi nhắc đến Ngô Tự, mắt nàng tránh đi một chút. Rất ít. Đủ cho Lục Tầm thấy. Người bán tin giỏi có thể điều khiển giọng nói, nhưng ký ức thường phản bội ở mắt.
+
+"Ngô Tự biết người cầm đèn là ai?"
+
+"Ông ấy biết người cầm đèn không phải người bị giết tối qua."
+
+Đây là lớp đầu tiên của manh mối. Câu trên giấy không nói về Ngô Tự. Ai đó muốn anh nghĩ nó nói về Ngô Tự, hoặc muốn người khác nghĩ anh sẽ nghĩ như vậy.
+
+"Bảy năm trước," Lục Tầm nói, "ở bến Không Đèn có một ngọn đèn."
+
+Bạch Yên nhìn chén rượu của anh. "Có nhiều người chết ở đó hơn số đèn."
+
+"Cô biết nhiều chuyện về đêm ấy."
+
+"Hồi Phong sống bằng những chuyện không ai nói hết."
+
+Lục Tầm lấy đồng tiền nứt từ tay áo ra, đặt lên bàn. Đồng tiền của Ngô Tự đã bị Hội Thanh Luật giữ, nhưng đây là đồng tiền người áo xám không lấy được vì anh không mang theo ở hạ lưu. Nó từng nằm dưới nền lều cùng thanh kiếm, một trong vài thứ anh không chôn sâu đủ.
+
+Mắt Bạch Yên dừng trên vết nứt.
+
+"Thứ này làm người ta chết," nàng nói.
+
+"Nó từng chỉ dùng để nhận lời hộ tống."
+
+"Lời hứa cũng giết người. Chỉ chậm hơn kiếm."
+
+Nàng đưa tay như muốn chạm vào đồng tiền, rồi rút lại. Lục Tầm nhìn ngón tay nàng. Trên đốt giữa có một vết chai rất nhỏ, không phải của đàn. Vết chai của người thường xuyên mở khóa hộp mỏng hoặc giấu giấy trong khe gỗ.
+
+"Cô muốn gì?" anh hỏi.
+
+"Ta muốn người giết Ngô Tự bị lôi ra."
+
+"Vì ông ấy mua tin của cô?"
+
+"Vì ông ấy còn nợ ta tiền."
+
+"Nói dối."
+
+Bạch Yên tựa lưng vào ghế. "Ngươi trả thêm để nghe câu thật?"
+
+"Ta chưa trả gì."
+
+"Ngươi đã bước vào đây bằng mặt thật. Đó là tiền đặt cọc."
+
+Chủ quán ho khẽ sau quầy. Ngoài hẻm có tiếng chân đi qua rồi dừng. Không phải một người. Ít nhất ba. Họ không vào. Họ chỉ đứng dưới mái hiên đối diện, nơi có thể nhìn cửa quán qua màn mưa mỏng.
+
+Bạch Yên gõ móng tay xuống bàn một lần.
+
+Tiếng đàn ở góc trong lại vang lên, dù không còn ai ngồi đó. Không, không phải đàn. Là dây nhỏ kéo qua gỗ. Một tín hiệu.
+
+Chủ quán thổi tắt hai ngọn đèn gần cửa.
+
+"Người của ai?" Lục Tầm hỏi.
+
+"Ở Hồi Phong, câu đó mất thời gian. Hỏi họ muốn gì nhanh hơn."
+
+"Muốn ta?"
+
+"Muốn biết ngươi đi đâu sau khi rời quán. Muốn biết ta bán gì cho ngươi. Muốn biết Ngô Tự chết có làm Quán Mưa nói nhiều hơn thường lệ không."
+
+Bạch Yên lấy chén rượu của mình, hất xuống sàn. Rượu chảy theo khe gỗ, biến mất dưới chân bàn. Một lát sau, từ dưới sàn vọng lên hai tiếng gõ nhỏ.
+
+"Có đường dưới?"
+
+"Quán không treo bảng vì khách đôi khi phải ra bằng chỗ không có cửa."
+
+Lục Tầm không đứng dậy. "Tin chưa xong."
+
+"Ngươi nghĩ còn thời gian mặc cả?"
+
+"Không. Ta nghĩ cô chưa nói điều đáng giá nhất."
+
+Bạch Yên nhìn anh lâu hơn lần trước. Mưa gõ lên mái. Ngoài hẻm, một người ho nhẹ. Người đứng chờ thường không ho nếu không muốn người trong quán biết mình chờ. Vậy tiếng ho là lời nhắc: chúng tôi biết các người biết.
+
+"Ngô Tự trước khi chết hỏi về một người chèo đò," Bạch Yên nói. "Không tên. Chỉ nói đứa trẻ từng sống sót ở bến Không Đèn."
+
+Lục Tầm thấy lòng bàn tay mình lạnh đi.
+
+"Ông ấy hỏi ai?"
+
+"Hỏi chủ quán."
+
+Chủ quán sau quầy ngừng lau chén.
+
+Bạch Yên nói tiếp: "Chủ quán không trả lời. Vì có những cái tên nói ra sẽ chết ngay. Ngô Tự bảo nếu đứa trẻ còn sống, Lục Tầm không phải người đến đầu tiên ở bến."
+
+Đây là lớp thứ hai. Ngô Tự không chỉ chép lại câu người cầm đèn. Ông ấy đang nối câu đó với A Trạm, với thời điểm Lục Tầm đến bến, với vết sửa trong hồ sơ mà anh còn chưa biết.
+
+Lục Tầm thu đồng tiền lại. "Giá?"
+
+"Ngươi quên tên người nói chuyện đứa trẻ."
+
+"Không đủ rõ."
+
+"Khi có người hỏi vì sao ngươi tìm đến bến cũ, ngươi không nhắc Quán Mưa."
+
+"Được."
+
+"Và khi tìm ra kẻ giết Ngô Tự, ngươi để ta gặp hắn trước khi hắn chết."
+
+Lục Tầm nhìn nàng. "Cô muốn báo thù."
+
+"Ta muốn hỏi một câu."
+
+"Câu gì?"
+
+"Vì sao một người chép đơn nghèo lại phải chết giống mười ba người đã chết bảy năm trước."
+
+Lần này nàng nói thật. Không phải toàn bộ, nhưng thật.
+
+Ngoài cửa có tiếng gõ.
+
+Ba tiếng.
+
+Chủ quán bước ra, mở hé cửa. Một giọng đàn ông từ ngoài hẻm vọng vào: "Hội Thanh Luật kiểm tra khách lạ."
+
+Bạch Yên nghiêng đầu nhìn Lục Tầm. "Nếu ngươi giết họ ở đây, quán ta mất mái."
+
+"Nếu ta không giết?"
+
+"Ta mất khách."
+
+"Cô chọn gì?"
+
+"Ta chọn bán thêm một tin."
+
+Nàng đứng dậy, đi về phía bình phong, kéo một chốt gỗ. Tấm sàn dưới chân Lục Tầm hạ xuống nửa tấc, để lộ một khe tối vừa đủ một người lách qua. Mùi nước cống và rượu cũ bốc lên.
+
+"Đường này ra sau tiệm thuốc. Đi hết mười hai bước thì cúi đầu. Bước thứ mười ba có đinh."
+
+"Cô đếm kỹ vậy?"
+
+"Ta từng chảy máu ở đó."
+
+Lục Tầm bước xuống khe. Trước khi nắp sàn đóng, Bạch Yên đặt vào tay anh một vật nhỏ bọc trong vải.
+
+"Đừng mở dưới đèn của người khác," nàng nói.
+
+"Lại nợ?"
+
+"Nợ thì còn dễ. Đây là thứ khiến ngươi phải quay lại."
+
+Nắp sàn khép.
+
+Đường ngầm thấp, ẩm, tối đến mức bàn tay trước mặt cũng chỉ là một bóng đen dày hơn bóng đen khác. Lục Tầm đi đúng mười hai bước rồi cúi đầu. Ở bước thứ mười ba, một cái đinh sắt nhô ra từ xà gỗ, đúng tầm mắt người không nghe lời. Anh nghiêng qua, tiếp tục đi.
+
+Phía trên, tiếng cửa mở. Giọng người của Hội Thanh Luật vang xuống qua ván sàn, mơ hồ như tiếng dưới nước.
+
+"Khách áo tơi đâu?"
+
+Bạch Yên đáp: "Quán Mưa bán rượu, không bán áo."
+
+"Có người thấy hắn vào đây."
+
+"Vậy người đó nên vào uống cùng."
+
+Một tiếng bạt tai vang lên.
+
+Lục Tầm dừng lại.
+
+Trên đầu anh im một nhịp. Rồi giọng Bạch Yên trở lại, vẫn đều: "Đánh thêm cái nữa thì giá tin tăng gấp đôi."
+
+Anh nắm chặt chuôi kiếm, rồi buông ra.
+
+Đây là giá của manh mối. Không phải anh trả. Người khác trả thay trước mắt anh, và anh phải chấp nhận nếu muốn đi tiếp. Quy tắc đó bẩn hơn đao, nhưng giang hồ thường vận hành bằng những thứ bẩn mà không ai gọi tên.
+
+Anh đi tiếp.
+
+Đường ngầm dẫn ra sau tiệm thuốc thật. Lục Tầm chui lên giữa những sọt rễ cây khô. Chủ tiệm ngủ gục ngoài quầy, hoặc giả vờ ngủ. Trên bức tường sau có một khe nhìn ra hẻm Quán Mưa. Hai người áo trắng vẫn đứng ngoài cửa. Người thứ ba đang ghi gì đó vào sổ.
+
+Lục Tầm mở bọc vải Bạch Yên đưa.
+
+Bên trong là một đồng tiền nứt.
+
+Không phải đồng tiền của anh. Không phải đồng tiền trong tay Ngô Tự. Vết nứt chạy từ lỗ vuông ra mép theo hướng ngược lại, và trên mặt tiền có một vệt khắc rất nhỏ: ba chấm xếp thành hình mái hiên. Dính ở mép tiền là một sợi vải xanh sẫm, cùng màu áo Bạch Yên.
+
+Anh lật đồng tiền dưới ánh sáng lọt qua khe tường. Mặt sau có vết máu cũ đã thấm vào rãnh chữ. Máu lâu năm, không phải của Ngô Tự.
+
+Ba đồng tiền nứt.
+
+Một nằm trong tay người chết. Một nằm dưới nền lều của anh. Một nằm trong tay Bạch Yên.
+
+Tín vật không còn là tín vật. Nó là một sợi dây, và ai đó đang kéo từng đầu dây về bến Không Đèn.
+
+Ngoài hẻm, người của Hội Thanh Luật rời Quán Mưa. Bạch Yên đứng dưới mái ướt, một bên má đỏ lên vì bị đánh. Nàng không nhìn về phía tiệm thuốc. Nhưng tay nàng đưa lên chỉnh tóc, để lộ trong thoáng chốc cổ tay trái.
+
+Trên cổ tay ấy có một vết sẹo mảnh, cũ, chạy ngang như vết kim tuyến.
+
+Lục Tầm cất đồng tiền vào tay áo.
+
+Anh đã mua được tin. Anh cũng vừa nhận một món nợ.
+
+Phía xa, chuông canh ba vang lên. Trấn Hồi Phong ngủ rất nông. Dưới giấc ngủ ấy, những cái tên cũ bắt đầu trở mình.

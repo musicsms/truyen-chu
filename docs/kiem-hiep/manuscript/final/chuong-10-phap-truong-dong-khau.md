@@ -1,0 +1,195 @@
+# Chương 10: Pháp trường Đông Khẩu
+
+Pháp trường Đông Khẩu được rửa trước mỗi phiên xử.
+
+Người trong trấn nói đó là vì Hội Thanh Luật trọng sạch sẽ. Tô Nghi nói không phải. Máu cũ làm máu mới khó đọc. Một pháp trường muốn giết người bằng danh nghĩa thì trước hết phải làm nền đá trông như chưa từng giết ai.
+
+Sáng ấy, nền đá còn ướt khi dân Hồi Phong kéo đến.
+
+Tin Hội Thanh Luật xử vắng mặt Lục Tầm lan từ canh năm. Đến giờ Thìn, bốn con phố quanh pháp trường đã kín người. Phu bến đứng cùng tiêu sư, người bán cá chen cạnh chủ tiệm thuốc, trẻ con trèo lên thùng hàng nhìn qua vai người lớn. Không ai muốn bị thấy là quá tò mò, nhưng cũng không ai chịu ở nhà. Một cái tên chết bảy năm sống lại đáng xem hơn mọi gánh hát.
+
+Lục Tầm đứng trong đám đông.
+
+Anh mặc áo vải nâu của phu kéo hàng, nón rách kéo thấp. A Trạm đứng bên trái, mặt bôi tro, tay ôm một bó dây thừng để giả làm phu bến. Tô Nghi đứng bên phải, bàn tay bị thương giấu trong túi áo. Nàng không nên ra ngoài khi độc chưa tan hết, nhưng nàng nói người sống nói sai về xác chết thường làm nàng đau hơn độc.
+
+"Nếu họ nhận ra ngươi?" A Trạm hỏi nhỏ.
+
+"Thì phiên xử đỡ vắng mặt."
+
+"Ông đùa tệ."
+
+"Ta ít luyện."
+
+Tô Nghi nhìn lên án đài. "Im. Người giữ luật đến."
+
+Văn Triệt bước ra từ cửa sau pháp trường.
+
+Ông không cần người hô. Khi ông xuất hiện, đám đông tự hạ giọng, rồi im hẳn. Văn Triệt khoảng ngoài sáu mươi, tóc bạc buộc gọn, áo trắng viền đen không có một nếp nhăn sai chỗ. Ông đi chậm, tay không cầm vũ khí. Chính vì vậy, ông trông nguy hiểm hơn những người mang đao đứng hai bên.
+
+Trên án đài, ghế của thủ tọa đặt cao hơn mặt sân ba bậc. Không cao đến mức giống quan phủ, nhưng đủ để người đứng dưới phải ngẩng lên.
+
+Văn Triệt ngồi xuống.
+
+Một thư lại đọc cáo trạng. Giọng hắn vang, tròn, đã luyện để chữ nào cũng đến được cuối đám đông.
+
+"Lục Tầm, nguyên kiếm khách giang hồ, bảy năm trước can tội sát hại mười ba người tại bến Không Đèn. Nay trong vụ Ngô Tự bị giết, vật chứng cũ xuất hiện, thủ pháp tương đồng, nhân chứng nhiều người xác nhận nghi phạm đã trở lại vùng Lạc Thủy..."
+
+Đám đông động nhẹ ở chữ "trở lại".
+
+Lục Tầm nghe tên mình như nghe tên người khác. Sau bảy năm làm lão Lâm, cái tên ấy không còn vừa với thân thể anh. Nhưng người trên án đài đọc nó trơn tru, như thể nó chưa từng thuộc về một người biết đau vai, biết vá lưới, biết ăn cơm nguội trước khi đi vào nguy hiểm.
+
+Thư lại đọc tiếp. Không có gì về vết cắt sau chết. Không có gì về dầu pháp trường. Không có gì về kim tuyến. Không có gì về giờ bị sửa.
+
+Giấy mực biết chọn điều nó muốn nhớ.
+
+Khi cáo trạng kết thúc, Văn Triệt đặt tay lên án.
+
+"Giang hồ có thể không cần quan phủ trong mọi việc," ông nói, giọng không lớn nhưng rõ đến từng chữ. "Nhưng giang hồ không thể không có luật. Khi người cũ mang tội trở lại, khi người chép đơn vô tội chết dưới mái hiên, khi vật chứng của đại án xuất hiện lần nữa, Hội Thanh Luật có trách nhiệm giữ yên lòng người."
+
+Từ "giữ yên" làm Lục Tầm nhìn lên.
+
+Người muốn giữ yên lòng người thường bắt đầu bằng cách ép một số người im.
+
+"Trước khi Hội tuyên lệnh truy bắt," Văn Triệt nói tiếp, "có ai trong hội vụ muốn trình thêm?"
+
+Đó đáng lẽ là câu hỏi hình thức.
+
+Nhưng Cố Hoài Sương bước ra.
+
+Nàng mặc áo trắng viền đen, tóc buộc gọn, mặt nhợt hơn đêm ở thư phòng. Trên má trái vẫn còn vết đỏ mờ. Trong tay nàng là một khay hồ sơ.
+
+Đám đông rì rầm. Văn Triệt nhìn nàng, ánh mắt không giận, chỉ buồn. Kiểu buồn của người lớn khi thấy trẻ con làm đổ mực lên bài học.
+
+"Hoài Sương," ông nói. "Con phụ trách ghi phiên hôm nay, không phải trình án."
+
+"Thủ tọa vừa hỏi có ai muốn trình thêm."
+
+"Vậy trình."
+
+Cố Hoài Sương đặt khay hồ sơ lên bàn phụ. Giọng nàng hơi khô lúc đầu, nhưng đứng vững sau vài chữ.
+
+"Vụ Ngô Tự có ba điểm chưa được ghi trong cáo trạng. Thứ nhất, vết cắt ở cổ tay nạn nhân hình thành sau khi chết. Điều đó khiến vật chứng trong tay ông ấy không chắc được nắm lúc còn sống."
+
+Đám đông động mạnh hơn.
+
+Một người phu bến nói to: "Vậy đồng tiền ai nhét?"
+
+Người của Hội Thanh Luật quát im. Nhưng câu hỏi đã kịp đi qua nhiều tai.
+
+Cố Hoài Sương tiếp tục: "Thứ hai, trên đồng tiền và áo kẻ phục kích ở hạ lưu có mùi dầu đèn pháp trường. Loại dầu này cũng xuất hiện trong ghi chép cũ về bến Không Đèn."
+
+Văn Triệt vẫn ngồi yên.
+
+"Thứ ba," nàng nói, "hồ sơ đại án bảy năm trước có dấu sửa giờ đến bến của Lục Tầm. Bản sao nội bộ cho thấy chữ bị cạo."
+
+Lần này pháp trường không rì rầm. Nó nín thở.
+
+A Trạm siết bó dây thừng đến trắng tay. Tô Nghi nhìn Cố Hoài Sương như nhìn một người vừa tự rạch áo giáp của mình trước đám đông.
+
+Văn Triệt hỏi: "Con có bản gốc không?"
+
+Cố Hoài Sương khựng nửa nhịp. "Bản gốc nằm trong nội viện."
+
+"Vậy con đang trình nghi vấn từ bản sao?"
+
+"Bản sao đủ thấy vết cạo."
+
+"Đủ cho con nghi ngờ. Chưa đủ cho Hội sửa án."
+
+Ông nói không cao giọng. Càng không cao giọng, câu ấy càng giống lưới. Nó không phủ nhận. Nó chỉ đặt mọi thứ Cố Hoài Sương nói vào cái hộp gọi là nghi vấn, rồi đóng nắp.
+
+Cố Hoài Sương nhìn thẳng vào ông. "Nếu nghi vấn liên quan đến mạng người, Hội nên dừng tuyên án."
+
+"Hội chưa tuyên án. Hội tuyên lệnh truy bắt để hỏi."
+
+Tô Nghi cười nhạt. "Hỏi bằng dây thừng."
+
+Một người đứng gần nghe thấy, quay lại. Lục Tầm kéo nón thấp hơn.
+
+Trên án đài, Văn Triệt đứng dậy. Ông đi xuống một bậc, đủ gần Cố Hoài Sương để mọi người thấy quan hệ thầy trò, đủ xa để vẫn là thủ tọa.
+
+"Hoài Sương," ông nói, "ta dạy con điều đầu tiên khi vào Hội là gì?"
+
+Nàng im.
+
+"Luật không chạy theo tiếng ồn. Luật không run vì lời đồn. Luật không vì lòng thương nhất thời mà thả một kẻ nguy hiểm vào dân chúng."
+
+"Con nhớ."
+
+"Vậy hôm nay con đang làm gì?"
+
+Cố Hoài Sương nhìn đám đông. Có người hy vọng nàng nói tiếp. Có người sợ nàng nói tiếp. Có người ghét nàng vì nếu nàng đúng, họ đã tin sai bảy năm.
+
+"Con đang hỏi vì sao luật lại sợ một vết cạo trên giấy."
+
+Một tiếng hít dài chạy qua pháp trường.
+
+Văn Triệt nhìn nàng rất lâu. Rồi ông quay lại ghế, ngồi xuống.
+
+"Cố Hoài Sương tạm ngưng chức ghi án, về nội viện soát lại hồ sơ dưới sự giám sát. Những nghi vấn nàng nêu sẽ được Hội xem xét. Nhưng trong lúc đó, lệnh truy bắt Lục Tầm vẫn có hiệu lực."
+
+Hai người áo trắng bước đến cạnh Cố Hoài Sương. Không chạm vào nàng trước mặt dân, nhưng đường lui đã bị khóa. Nàng cúi xuống lấy khay hồ sơ. Một người giữ lại.
+
+"Để đó," hắn nói.
+
+Cố Hoài Sương buông tay. Lục Tầm thấy ngón tay nàng run rất nhẹ.
+
+Văn Triệt nâng giọng: "Ai chứa chấp, che giấu, dẫn đường, đưa thuốc, hoặc bán tin cho Lục Tầm, đều bị xem là đồng phạm cho đến khi Hội tra rõ. Tiền thưởng bắt sống tăng lên năm trăm lượng."
+
+Năm trăm.
+
+Con số rơi xuống đám đông như mồi xuống nước.
+
+A Trạm tái mặt. "Vừa rồi là ba trăm."
+
+"Luật biết trả giá theo chợ," Tô Nghi nói.
+
+Một người đàn ông đứng cạnh họ nhìn sang. Ánh mắt hắn dừng ở tay Lục Tầm, rồi ở thanh kiếm bọc vải. Nhận ra hay chỉ nghi, không quan trọng. Năm trăm lượng đủ làm nghi ngờ mọc răng.
+
+Lục Tầm lùi một bước. "Đi."
+
+Họ tách khỏi đám đông đúng lúc Cố Hoài Sương bị đưa vào cửa sau pháp trường. Nàng không nhìn quanh. Nhưng khi đi ngang cột đèn, tay nàng chạm nhẹ vào thân cột. Một mẩu giấy nhỏ rơi xuống chân cột, bị nước mưa dính lại.
+
+Lục Tầm thấy.
+
+Anh không thể nhặt ngay. Có quá nhiều mắt. Anh đi qua, làm như bị người phía sau xô, chân đá bùn văng lên che mẩu giấy. Tô Nghi hiểu, ho một tiếng, giả vờ loạng choạng. A Trạm cúi xuống đỡ nàng, đồng thời nhặt mẩu giấy vào lòng bàn tay.
+
+Ba người rời pháp trường bằng hẻm bán cá.
+
+Đến khi tiếng đám đông xa đi, A Trạm mở giấy. Chỉ có năm chữ:
+
+Nội viện không an toàn.
+
+Dưới cùng là một vệt mực kéo dài, như người viết bị giật tay.
+
+Lục Tầm nhìn về phía bắc. Sau bức tường Hội Thanh Luật, Cố Hoài Sương vừa tự biến mình từ người ghi luật thành người bị luật giữ.
+
+"Ta phải đưa nàng ra," A Trạm nói.
+
+Tô Nghi nhìn bàn tay bị thương của mình. "Ngươi định xông vào Hội Thanh Luật bằng mái chèo?"
+
+"Nếu cần."
+
+"Vậy nhớ chọn mái tốt."
+
+Lục Tầm cất mẩu giấy vào áo. "Chưa. Nếu vào bây giờ, nàng chết nhanh hơn. Văn Triệt muốn ta nhìn thấy nàng bị giữ. Ông ta đang đặt mồi."
+
+"Vậy làm gì?"
+
+Anh nhìn mùi dầu pháp trường bám trong không khí, nhìn dòng người còn tụ quanh án đài, nhìn những cáo thị mới chắc chắn sẽ được dán trước khi trời tối.
+
+"Tìm người bán mồi cho ông ta," anh nói. "Và tìm cách khiến cả trấn nghe câu hỏi mà ông ta vừa nhốt lại."
+
+Chiều hôm đó, cáo thị mới xuất hiện ở mọi ngã phố.
+
+Không chỉ truy bắt Lục Tầm.
+
+Ai chứa Lục Tầm cũng là đồng phạm.
+
+Từ giờ, mỗi cánh cửa đóng trước mặt anh không chỉ vì sợ chết. Nó còn vì người trong nhà muốn chứng minh mình vô tội.
+
+Đến cuối phố cá, một bà bán cháo nhận ra A Trạm. Bà nhìn cậu một thoáng, rồi nhìn tờ cáo thị mới dán trên tường. Tay bà đang múc cháo dừng lại. Sau đó bà lặng lẽ kéo nồi vào trong, đóng cửa gỗ.
+
+A Trạm không nói gì.
+
+Lục Tầm cũng không. Anh nghe tiếng then cửa rơi xuống, khô và nhỏ. Đó là âm thanh đầu tiên của lệnh Văn Triệt thật sự có hiệu lực. Không cần đao, không cần dây thép. Chỉ cần biến lòng tốt thành bằng chứng phạm tội, cả một trấn sẽ tự học cách quay mặt đi.
