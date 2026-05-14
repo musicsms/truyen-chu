@@ -12,6 +12,6 @@
     "content:validate": "npm run content:validate -w apps/content-service"
   },
   "engines": {
-    "node": ">=20 <21"
+    "node": ">=22 <23"
   }
 }
