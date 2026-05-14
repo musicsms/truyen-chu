@@ -1,2 +1,13 @@
 .superpowers/
 .worktrees/
+node_modules/
+dist/
+coverage/
+.env
+.DS_Store
+
+apps/mobile-reader/.dart_tool/
+apps/mobile-reader/build/
+apps/mobile-reader/.flutter-plugins
+apps/mobile-reader/.flutter-plugins-dependencies
+apps/mobile-reader/android/.gradle/
