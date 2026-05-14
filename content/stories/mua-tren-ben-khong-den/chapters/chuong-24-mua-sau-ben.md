@@ -1,0 +1,209 @@
+# Chương 24: Mưa sau bến
+
+Bến Không Đèn có đèn trở lại vào ngày thứ bảy sau phiên xử.
+
+Không ai làm lễ. Không ai đánh trống. A Trạm tự chống gậy ra bến, ngực còn quấn băng, mỗi bước đều làm mặt cậu trắng hơn. Lý Mạn đi sau, miệng mắng từ bến dưới lên bến cũ không nghỉ. Mắng cậu không biết giữ mạng. Mắng Lục Tầm kéo trẻ con vào chuyện giang hồ. Mắng trời mưa đúng ngày treo đèn. Nhưng khi A Trạm leo lên cột, bà là người giữ thang chắc nhất.
+
+Chiếc đèn mới không giống chiếc đèn cũ.
+
+Nó làm bằng đất thô, viền tre, bấc thường, dầu thường. Không cháy xanh. Không có mùi pháp trường. Nếu gió lớn, nó sẽ tắt. A Trạm nói như vậy mới tốt. Đèn mà không biết tắt thường thuộc về người muốn người khác sợ bóng tối.
+
+Dưới đèn, cậu buộc đồng tiền nứt bằng dây gai.
+
+Lục Tầm đứng dưới bến nhìn.
+
+"Để ai qua bến cũng thấy," A Trạm nói.
+
+"Thấy gì?"
+
+"Thấy có những đêm tối vì không ai thắp. Và có những đèn sáng vì người ta muốn giấu thứ khác."
+
+Lục Tầm gật.
+
+A Trạm thở mạnh, ngồi xuống mép bến. "Ta sẽ giữ bến này."
+
+Lý Mạn quát: "Giữ cái mạng trước!"
+
+"Giữ cả hai."
+
+Bà già định mắng tiếp, rồi thôi. Có những câu của người vừa sống sót khó mắng hơn bình thường.
+
+Trấn Hồi Phong không đổi ngay.
+
+Kho muối Vạn Thạch bị niêm, nhưng muối vẫn cần chuyển. Người từng làm cho kho không biến mất chỉ vì chủ kho chạy. Tiêu cục Hồi Phong đóng cửa ba ngày, rồi mở lại dưới quyền một nhóm tiêu sư lớn tuổi. Trên cổng, bốn chữ "đường xa giữ tín" được sơn lại, nhưng nét cuối cố ý để trống. Người ta nói đó là để nhớ Đường Kính chưa trả hết nợ. Người khác nói vì chưa ai biết tín nghĩa nên viết tiếp thế nào.
+
+Ngày mở cửa lại, không ai dám nhận chuyến đầu.
+
+Một xe muối nhỏ cần qua bến để đưa tới thôn hạ lưu. Trước kia loại việc ấy chỉ cần đưa thẻ của Vạn Thạch, tiêu sư sẽ áp tay lên chuôi đao, phu bến sẽ im miệng, người mua muối sẽ nhận hàng mà không hỏi cân. Hôm ấy, một lão tiêu sư đặt cân giữa sân tiêu cục, bắt người gửi, người chở, người nhận cùng nhìn. Muối thiếu hai cân so với giấy.
+
+Không ai chết vì hai cân muối. Nhưng cả sân im đi như vừa nghe một bản án.
+
+Người gửi hàng đỏ mặt, nói chắc do bao rách. Lão tiêu sư không mắng. Ông chỉ rút dao cắt miệng bao, đổ muối ra rổ, cân lại từng phần trước mặt mọi người. Cuối cùng đúng là bao rách. Một đường rách nhỏ ở đáy, không phải đường dao, chỉ là dây gai mục. Người gửi thở phào. Người nhận hàng cũng thở phào. Nhưng Lục Tầm, đứng ngoài cổng, hiểu vì sao cảnh ấy đáng nhìn: lần đầu sau nhiều năm, người ta chấp nhận mất thời gian để khỏi phải tin mù.
+
+Một đứa trẻ bán bánh bên đường hỏi mẹ: "Sao cân muối cũng cần đông người vậy?"
+
+Người mẹ đáp: "Vì trước kia ít người quá."
+
+Câu ấy truyền nhanh hơn nhiều cáo thị.
+
+Hội Thanh Luật không giải tán.
+
+Không thể. Giang hồ vẫn cần nơi phân xử khi quan phủ đến muộn hoặc đến vì tiền. Nhưng đại ấn cũ bị niêm. Nội viện mở một phần hồ sơ. Cố Hoài Sương, người bị khai trừ, lại là người được dân trấn mời ghi bản án mới. Nàng không nhận chức thủ tọa. Nàng chỉ nhận một căn phòng nhỏ cạnh pháp trường, ba tủ giấy, và quyền từ chối mọi hồ sơ không cho nàng đọc vật chứng.
+
+Ngày đầu tiên, nàng treo trước cửa một tấm gỗ:
+
+Hồ sơ có thể sai. Người đọc phải được hỏi.
+
+Tấm gỗ bị người ta bàn tán cả buổi.
+
+Một trưởng lão cũ của Hội Thanh Luật cho rằng câu ấy làm yếu uy danh. Cố Hoài Sương mời ông vào phòng, đặt trước mặt ông ba bản lời khai về cùng một vết chém, rồi hỏi bản nào đúng. Ông đọc một lúc, mặt sa xuống. Bản thứ nhất nói vết chém từ kiếm thẳng. Bản thứ hai nói từ đoản đao. Bản thứ ba, do Tô Nghi viết, nói người ghi hai bản trước chưa từng nhìn xương dưới da. Cố Hoài Sương không nói thêm. Nàng chỉ đưa cho ông cây bút.
+
+"Nếu muốn giữ uy danh," nàng nói, "xin ghi vào đây: uy danh quan trọng hơn người chết."
+
+Ông không ghi.
+
+Từ hôm đó, trong phòng nàng có thêm một chiếc ghế cho người bị hỏi. Không cao hơn ghế người hỏi. Không thấp hơn. Việc nhỏ ấy làm vài người khó chịu hơn cả bản án dành cho Văn Triệt, vì nó buộc họ ngồi ngang với người từng bị họ gọi là nghi phạm.
+
+Tô Nghi thuê căn phòng bên cạnh.
+
+Nói thuê cho đẹp. Thực ra tiền thuê do phu bến, người bán cá, vài tiêu sư và cả người cháu của Ngô Tự góp lại. Trên cửa phòng nàng không treo bảng. Ai muốn nàng nói thay người chết thì gõ ba tiếng. Ai muốn mua kết luận có sẵn thì bị ném ra ngoài. Bàn tay bị thương của nàng hồi phục chậm. Những ngày đầu, nàng không cầm được dao mảnh lâu. Nàng chửi nhiều hơn thường lệ, nghĩa là đau nhiều hơn nàng nhận.
+
+Lục Tầm đến thăm một lần.
+
+Tô Nghi đang tập cầm dao bằng tay trái trước một miếng da heo.
+
+"Xấu," nàng nói trước khi anh mở miệng.
+
+"Ta chưa nói gì."
+
+"Mặt ngươi nói hộ. Đừng thương hại tay ta. Nó vẫn hữu dụng hơn nhiều cái đầu còn nguyên."
+
+Anh đặt lên bàn con dao vá lưới cháy dở. "Cho cô."
+
+Nàng nhìn nó. "Ta mổ xác bằng thứ này thì người chết kiện."
+
+"Vậy giữ để nhớ có thứ cùn vẫn cắt được dây."
+
+Tô Nghi cầm dao lên, xoay thử. "Ngươi sắp đi."
+
+"Ừ."
+
+"Tốt. Ở lại lâu quá, người ta lại bắt ngươi làm biểu tượng."
+
+"Cô không giữ?"
+
+"Ta giữ xác chết. Người sống tự giữ mình."
+
+Đó là lời tạm biệt của Tô Nghi. Với nàng, vậy đã rất dài.
+
+Trước khi Lục Tầm rời phòng, một người đàn bà bế hũ tro đứng ngoài cửa. Chồng bà là một trong những phu bến bị ghi nhầm tên trong hồ sơ cũ. Bà không hỏi ai giết chồng mình nữa. Câu hỏi ấy đã có quá nhiều người dùng để đổi lấy im lặng. Bà chỉ hỏi Tô Nghi liệu xương trong hũ có đúng là của ông không.
+
+Tô Nghi mở khăn, nhìn phần tro, nhìn mảnh răng còn sót lại, rồi im lặng rất lâu.
+
+"Không đủ để chắc," nàng nói.
+
+Người đàn bà cắn môi. "Vậy ta phải thờ ai?"
+
+Tô Nghi không an ủi. Nàng lấy một mảnh giấy, viết tên người chồng theo đúng tên trong hồ sơ mới, đặt cạnh hũ tro. "Thờ tên trước. Xương tìm sau."
+
+Lục Tầm đứng bên cửa, nghe câu ấy như nghe một nhát dao cùn. Có những sự thật đến muộn đến mức không còn trả được thân xác cho ai. Nhưng ngay cả khi chỉ còn một cái tên, nó vẫn nặng hơn khoảng trống.
+
+Bạch Yên nhận án lưu đày nhẹ.
+
+Không phải ai cũng đồng ý. Người nhà Ngô Tự muốn án nặng hơn. Một số người Quán Mưa sống sót muốn nàng ở lại dựng quán mới. Bạch Yên tự nhận tội dựng hiện trường, giao lại mọi mảnh sổ và bài hát cho Cố Hoài Sương ghi. Cuối cùng, nàng bị buộc rời Hồi Phong ba năm, không được mua bán tin trong vùng Lạc Thủy.
+
+Ngày đi, nàng không mặc áo trắng.
+
+Nàng mặc áo xanh sẫm như đêm đầu Lục Tầm gặp nàng. Hộp đàn đã được sửa bằng gỗ mới, một cạnh vẫn giữ vết cháy cũ. Nàng gặp Lục Tầm dưới mái hiên nhà Ngô Tự. Mái hiên đã được thay một nửa, nhưng khe gỗ nơi máu từng đọng vẫn sẫm màu hơn xung quanh.
+
+"Lần sau," nàng nói, "đừng đợi người chết gọi mới quay lại."
+
+"Lần sau cô đừng dùng xác người làm thư."
+
+"Nếu còn lần sau, ta sẽ viết đẹp hơn."
+
+"Đừng."
+
+Nàng cười. Lần này nụ cười không sắc như trước. "Ta biết."
+
+Người cháu của Ngô Tự đứng bên kia phố. Hắn không đến gần. Nhưng khi Bạch Yên đi ngang, hắn không quay mặt đi. Đó chưa phải tha thứ. Chỉ là một cánh cửa chưa đóng hẳn.
+
+Văn Triệt bị đưa lên quan phủ tỉnh.
+
+Không ai tin quan phủ sẽ xử ông đúng hết. Nhưng hồ sơ lần này có quá nhiều bản, quá nhiều tai nghe, quá nhiều người giữ. Cố Hoài Sương sao ba bản. Một bản gửi quan phủ. Một bản giữ ở Hồi Phong. Một bản giao cho phu bến luân phiên cất, vì nàng nói giấy để trong tủ lâu quá dễ học thói kiêu ngạo của người giữ tủ.
+
+Phương Độ sống.
+
+Mất bàn tay trái.
+
+Tô Nghi không để hắn chết, vì người chết im nhanh quá. Hắn bị giải đi cùng Văn Triệt, tay cụt băng kín, miệng còn cười khi lên xe. A Trạm nhìn theo, hỏi Lục Tầm vì sao không giết hắn.
+
+"Vì hắn còn phải nói lại nhiều lần," Lục Tầm đáp.
+
+"Nói có đủ không?"
+
+"Không. Nhưng chết thì ít hơn."
+
+A Trạm suy nghĩ rất lâu. Rồi nói: "Ta ghét câu đúng kiểu đó."
+
+"Ta cũng vậy."
+
+Đêm trước khi rời trấn, Lục Tầm trở lại bến Không Đèn một mình.
+
+Mưa nhỏ. Đèn mới cháy yếu ở đầu cầu. Đồng tiền nứt dưới đèn xoay nhẹ theo gió, va vào cột gỗ phát ra tiếng khô. Trên sàn bến, những vết móc cũ vẫn còn. Không ai sửa chúng. A Trạm nói để vậy cho người qua bến biết gỗ cũng nhớ.
+
+Lục Tầm đứng đúng nơi từng có mười ba xác người.
+
+Anh không xin tha.
+
+Người chết không có nghĩa vụ tha cho người sống chỉ vì người sống cuối cùng cũng nói thật. Anh chỉ đọc tên họ. Bạch Túc. Trạm Bình. Những cái tên trong hồ sơ mới. Những cái tên anh từng không biết, từng không dám hỏi, từng để bị lấp dưới tên mình.
+
+Đọc đến tên thứ chín, giọng anh khựng lại.
+
+Không phải vì quên. Cố Hoài Sương đã chép tên rõ ràng, từng chữ đè sâu vào giấy. Anh khựng vì sau tên ấy có ghi thêm một dòng nhỏ: không rõ quê quán, trên tay trái có vết bỏng cũ. Một đời người bị giữ lại bằng bảy chữ như vậy. Không cha mẹ, không tuổi, không tiếng cười, không món nợ, không người từng đợi ở cửa. Chỉ một vết bỏng.
+
+Lục Tầm đọc lại tên đó lần thứ hai.
+
+Mưa làm giấy mềm đi. Anh dùng tay che, như thể che một ngọn đèn rất nhỏ. Xa xa, có tiếng người qua bến muộn. Họ nói nhỏ hơn trước kia khi đi ngang nơi này. Không phải vì sợ. Vì cuối cùng họ biết chỗ im lặng nào thuộc về người chết, chỗ im lặng nào là thứ người sống dùng để trốn.
+
+A Trạm không xuất hiện, nhưng trên cột đèn có thêm một mảnh vải dầu che bấc. Cậu đã đoán Lục Tầm sẽ đến. Không hỏi. Không đi theo. Chỉ để đèn khỏi tắt.
+
+Đọc xong, anh đặt tay lên chuôi kiếm.
+
+Thanh kiếm vẫn cũ. Không sạch như lời đồn. Không bẩn như hồ sơ. Chỉ là một thanh kiếm đã đi qua quá nhiều lời người khác đặt lên nó.
+
+Sáng hôm sau, Lục Tầm rời Hồi Phong bằng thuyền nhỏ.
+
+A Trạm chèo.
+
+"Ông đi đâu?" cậu hỏi.
+
+"Chưa biết."
+
+"Không ở lại giữ bến?"
+
+"Bến có người giữ rồi."
+
+"Ta còn nợ ông mạng."
+
+Lục Tầm nhìn đồng tiền nứt dưới đèn. "Giữ đèn. Đừng trả ta."
+
+Thuyền rời bến. Lý Mạn đứng trên cầu mắng theo vài câu về chuyện người lớn toàn bỏ việc khó cho trẻ con. Tô Nghi không ra tiễn. Nhưng trên thuyền có một gói thuốc và con dao vá lưới cháy dở được trả lại, kèm mảnh giấy: còn cùn, tự mài. Cố Hoài Sương gửi một bản sao hồ sơ mới, không phải để anh giữ tội, mà để anh biết tên mình đã được sửa trong giấy. Bạch Yên không gửi gì. Ba năm lưu đày bắt đầu bằng im lặng, có lẽ hợp với nàng.
+
+Khi thuyền ra giữa sông, A Trạm tháo đồng tiền nứt khỏi cột đèn, nhìn một lúc, rồi buộc lại chắc hơn.
+
+"Ta giữ nó được không?" cậu hỏi.
+
+"Nó vốn không còn là của ta."
+
+Đèn ở bến cháy nhỏ sau lưng họ. Không đủ soi cả giang hồ. Không đủ xóa bảy năm. Không đủ làm người chết sống lại.
+
+Nhưng đủ để người qua sông thấy mặt nhau.
+
+Lục Tầm ngồi ở mũi thuyền, để mưa rơi trên vai phải còn đau. Anh không còn là người vô tội như trước khi bảy năm bắt đầu. Cũng không còn là hung thủ như hồ sơ cũ từng viết. Anh chỉ là người đã im lặng quá lâu, và cuối cùng học được rằng nói thật không làm mình sạch hơn.
+
+Nó chỉ làm bóng tối bớt có cớ.
+
+Mưa rơi trên sông Lạc Thủy.
+
+Lần này, nó không cố xóa gì.

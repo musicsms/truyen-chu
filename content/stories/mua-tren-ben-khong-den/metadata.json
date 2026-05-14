@@ -1,0 +1,156 @@
+{
+  "slug": "mua-tren-ben-khong-den",
+  "title": "Mưa Trên Bến Không Đèn",
+  "author": "Local",
+  "description": "Một truyện kiếm hiệp trinh thám/noir về oan án, hồ sơ bị sửa, và cái giá của công lý.",
+  "status": "completed",
+  "language": "vi",
+  "tags": ["kiem-hiep", "noir", "trinh-tham"],
+  "cover": null,
+  "chapters": [
+    {
+      "slug": "chuong-01-xac-duoi-mai-hien",
+      "title": "Chương 1: Xác dưới mái hiên",
+      "order": 1,
+      "file": "chapters/chuong-01-xac-duoi-mai-hien.md"
+    },
+    {
+      "slug": "chuong-02-nguoi-va-luoi-rut-kiem",
+      "title": "Chương 2: Người vá lưới rút kiếm",
+      "order": 2,
+      "file": "chapters/chuong-02-nguoi-va-luoi-rut-kiem.md"
+    },
+    {
+      "slug": "chuong-03-quan-mua-khong-treo-bang",
+      "title": "Chương 3: Quán Mưa không treo bảng",
+      "order": 3,
+      "file": "chapters/chuong-03-quan-mua-khong-treo-bang.md"
+    },
+    {
+      "slug": "chuong-04-nguoi-nghiem-thi",
+      "title": "Chương 4: Người nghiệm thi",
+      "order": 4,
+      "file": "chapters/chuong-04-nguoi-nghiem-thi.md"
+    },
+    {
+      "slug": "chuong-05-ho-so-bi-sua",
+      "title": "Chương 5: Hồ sơ bị sửa",
+      "order": 5,
+      "file": "chapters/chuong-05-ho-so-bi-sua.md"
+    },
+    {
+      "slug": "chuong-06-ben-khong-den",
+      "title": "Chương 6: Bến không đèn",
+      "order": 6,
+      "file": "chapters/chuong-06-ben-khong-den.md"
+    },
+    {
+      "slug": "chuong-07-nguoi-cheo-do-ten-tram",
+      "title": "Chương 7: Người chèo đò tên Trạm",
+      "order": 7,
+      "file": "chapters/chuong-07-nguoi-cheo-do-ten-tram.md"
+    },
+    {
+      "slug": "chuong-08-tieu-cuc-hoi-phong",
+      "title": "Chương 8: Tiêu cục Hồi Phong",
+      "order": 8,
+      "file": "chapters/chuong-08-tieu-cuc-hoi-phong.md"
+    },
+    {
+      "slug": "chuong-09-hem-kim-chi",
+      "title": "Chương 9: Hẻm Kim Chỉ",
+      "order": 9,
+      "file": "chapters/chuong-09-hem-kim-chi.md"
+    },
+    {
+      "slug": "chuong-10-phap-truong-dong-khau",
+      "title": "Chương 10: Pháp trường Đông Khẩu",
+      "order": 10,
+      "file": "chapters/chuong-10-phap-truong-dong-khau.md"
+    },
+    {
+      "slug": "chuong-11-manh-so-trong-tieng-hat",
+      "title": "Chương 11: Mảnh sổ trong tiếng hát",
+      "order": 11,
+      "file": "chapters/chuong-11-manh-so-trong-tieng-hat.md"
+    },
+    {
+      "slug": "chuong-12-dem-chay-quan-mua",
+      "title": "Chương 12: Đêm cháy Quán Mưa",
+      "order": 12,
+      "file": "chapters/chuong-12-dem-chay-quan-mua.md"
+    },
+    {
+      "slug": "chuong-13-loi-thu-cua-nguoi-con-song",
+      "title": "Chương 13: Lời thú của người còn sống",
+      "order": 13,
+      "file": "chapters/chuong-13-loi-thu-cua-nguoi-con-song.md"
+    },
+    {
+      "slug": "chuong-14-chu-tieu-cuc-quy-truoc-ruong-cu",
+      "title": "Chương 14: Chủ tiêu cục quỳ trước rương cũ",
+      "order": 14,
+      "file": "chapters/chuong-14-chu-tieu-cuc-quy-truoc-ruong-cu.md"
+    },
+    {
+      "slug": "chuong-15-nguoi-giet-nguoi-thuan-tay-trai",
+      "title": "Chương 15: Người giết người thuận tay trái",
+      "order": 15,
+      "file": "chapters/chuong-15-nguoi-giet-nguoi-thuan-tay-trai.md"
+    },
+    {
+      "slug": "chuong-16-noi-vien-hoi-thanh-luat",
+      "title": "Chương 16: Nội viện Hội Thanh Luật",
+      "order": 16,
+      "file": "chapters/chuong-16-noi-vien-hoi-thanh-luat.md"
+    },
+    {
+      "slug": "chuong-17-dua-tre-giu-ky-uc",
+      "title": "Chương 17: Đứa trẻ giữ ký ức",
+      "order": 17,
+      "file": "chapters/chuong-17-dua-tre-giu-ky-uc.md"
+    },
+    {
+      "slug": "chuong-18-kho-muoi-van-thach",
+      "title": "Chương 18: Kho muối Vạn Thạch",
+      "order": 18,
+      "file": "chapters/chuong-18-kho-muoi-van-thach.md"
+    },
+    {
+      "slug": "chuong-19-nguoi-giu-luat",
+      "title": "Chương 19: Người giữ luật",
+      "order": 19,
+      "file": "chapters/chuong-19-nguoi-giu-luat.md"
+    },
+    {
+      "slug": "chuong-20-mot-phien-xu-khac",
+      "title": "Chương 20: Một phiên xử khác",
+      "order": 20,
+      "file": "chapters/chuong-20-mot-phien-xu-khac.md"
+    },
+    {
+      "slug": "chuong-21-kim-tuyen-truoc-dan-tran",
+      "title": "Chương 21: Kim tuyến trước dân trấn",
+      "order": 21,
+      "file": "chapters/chuong-21-kim-tuyen-truoc-dan-tran.md"
+    },
+    {
+      "slug": "chuong-22-den-tat-o-phap-truong",
+      "title": "Chương 22: Đèn tắt ở pháp trường",
+      "order": 22,
+      "file": "chapters/chuong-22-den-tat-o-phap-truong.md"
+    },
+    {
+      "slug": "chuong-23-cai-gia-cua-cong-bo",
+      "title": "Chương 23: Cái giá của công bố",
+      "order": 23,
+      "file": "chapters/chuong-23-cai-gia-cua-cong-bo.md"
+    },
+    {
+      "slug": "chuong-24-mua-sau-ben",
+      "title": "Chương 24: Mưa sau bến",
+      "order": 24,
+      "file": "chapters/chuong-24-mua-sau-ben.md"
+    }
+  ]
+}
