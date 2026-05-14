@@ -1,0 +1,17 @@
+{
+  "name": "truyen-chu",
+  "private": true,
+  "workspaces": [
+    "apps/api-gateway",
+    "apps/content-service",
+    "packages/contracts"
+  ],
+  "scripts": {
+    "build": "npm run build --workspaces",
+    "test": "npm run test --workspaces",
+    "content:validate": "npm run content:validate -w apps/content-service"
+  },
+  "engines": {
+    "node": ">=20 <21"
+  }
+}
