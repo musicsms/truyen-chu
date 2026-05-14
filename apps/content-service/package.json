@@ -6,7 +6,8 @@
   "scripts": {
     "build": "tsc -p tsconfig.json",
     "test": "vitest run",
-    "content:validate": "tsx src/cli/contentValidate.ts"
+    "content:validate": "tsx src/cli/contentValidate.ts",
+    "start": "node dist/server.js"
   },
   "dependencies": {
     "@fastify/cors": "^10.0.1",
