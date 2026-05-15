@@ -23,6 +23,18 @@ class AstBlockRenderer extends StatelessWidget {
               padding: const EdgeInsets.only(bottom: 12),
               child: Text(text, style: Theme.of(context).textTheme.bodyLarge),
             ),
+          BlockquoteBlock(:final paragraphs) => Container(
+              margin: const EdgeInsets.only(bottom: 12),
+              padding: const EdgeInsets.all(12),
+              decoration: BoxDecoration(
+                border: Border(left: BorderSide(color: Theme.of(context).colorScheme.outline)),
+              ),
+              child: Text(paragraphs.join('\n\n'), style: Theme.of(context).textTheme.bodyLarge),
+            ),
+          DividerBlock() => const Padding(
+              padding: EdgeInsets.symmetric(vertical: 12),
+              child: Divider(),
+            ),
         };
       },
     );

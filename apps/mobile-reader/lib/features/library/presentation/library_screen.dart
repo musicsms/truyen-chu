@@ -5,9 +5,12 @@ import '../../settings/presentation/settings_screen.dart';
 import '../../story_detail/presentation/story_detail_screen.dart';
 
 class LibraryScreen extends StatelessWidget {
-  const LibraryScreen({super.key});
+  const LibraryScreen({
+    ReaderApiClient? client,
+    super.key,
+  }) : client = client ?? const SampleReaderApiClient();
 
-  static const ReaderApiClient _client = ReaderApiClient(baseUrl: 'http://localhost:8080/api/v1');
+  final ReaderApiClient client;
 
   @override
   Widget build(BuildContext context) {
@@ -25,8 +28,11 @@ class LibraryScreen extends StatelessWidget {
         ],
       ),
       body: FutureBuilder<List<StorySummary>>(
-        future: _client.listStories(),
+        future: client.listStories(),
         builder: (context, snapshot) {
+          if (snapshot.hasError) {
+            return Center(child: Text('Không tải được thư viện: ${snapshot.error}'));
+          }
           final stories = snapshot.data ?? const <StorySummary>[];
           if (stories.isEmpty) {
             return const Center(child: CircularProgressIndicator());
@@ -42,7 +48,7 @@ class LibraryScreen extends StatelessWidget {
                 onTap: () {
                   Navigator.of(context).push(
                     MaterialPageRoute<void>(
-                      builder: (_) => StoryDetailScreen(story: story, client: _client),
+                      builder: (_) => StoryDetailScreen(story: story, client: client),
                     ),
                   );
                 },

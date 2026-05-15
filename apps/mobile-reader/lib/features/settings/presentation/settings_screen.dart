@@ -11,7 +11,7 @@ class SettingsScreen extends StatelessWidget {
         children: const [
           ListTile(
             title: Text('Server'),
-            subtitle: Text('http://localhost:8080/api/v1'),
+            subtitle: Text('http://10.0.2.2:8080/api/v1'),
           ),
           ListTile(
             title: Text('Theme'),
