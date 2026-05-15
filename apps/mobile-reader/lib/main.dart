@@ -2,6 +2,8 @@ import 'package:flutter/material.dart';
 import 'package:flutter_riverpod/flutter_riverpod.dart';
 import 'package:hive_flutter/hive_flutter.dart';
 
+import 'features/library/presentation/library_screen.dart';
+
 Future<void> main() async {
   WidgetsFlutterBinding.ensureInitialized();
   await Hive.initFlutter();
@@ -16,9 +18,7 @@ class ReaderApp extends StatelessWidget {
     return MaterialApp(
       title: 'Truyen Chu',
       theme: ThemeData(useMaterial3: true),
-      home: const Scaffold(
-        body: Center(child: Text('Reader platform')),
-      ),
+      home: const LibraryScreen(),
     );
   }
 }
