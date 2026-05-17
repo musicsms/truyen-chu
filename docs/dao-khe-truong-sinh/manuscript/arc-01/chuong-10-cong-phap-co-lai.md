@@ -1,0 +1,197 @@
+# Chương 10: Công Pháp Có Lãi
+
+Ngày thứ mười lăm ở ngoại môn, chuông công pháp đường vang lên đúng lúc thẻ nợ của Lâm Thất vừa trừ xong bữa cơ bản buổi sáng.
+
+Người dẫn lớp luật hôm ấy không giảng tiếp phần lỗi phòng ở. Hắn gấp bài quy chế, đặt xuống bàn, rồi nói: "Tân đệ tử đã đủ nửa tháng nhập môn, từ hôm nay được vào công pháp đường chọn pháp môn dẫn khí. Ba ngày không chọn, công pháp mặc định sẽ do ngoại môn phân. Ai chọn rồi đổi, phí đổi pháp tự chịu."
+
+Cả phòng bỗng sáng mắt.
+
+Nửa tháng qua, những thứ đám người mới chạm vào đều là bùn, cháo, áo vá, rãnh tắc, giấy phạt và bảng công. Họ lên núi vì hai chữ tu tiên, nhưng việc gần tiên nhất Lâm Thất từng làm chỉ là nhìn linh cốc yếu rung trong mương phụ. Bây giờ công pháp đường mở, hai chữ "dẫn khí" giống một bát cơm nóng đặt trước người đã nghe quá nhiều giá củi.
+
+Chu Hòe nắm thẻ nợ, mắt đỏ vì mấy đêm canh kho không ngủ đủ. "Cuối cùng cũng tới cái đáng tới."
+
+Chu Uyển ngồi phía trước, tay vô thức che vòng bạc dưới ống áo. Nàng nhỏ giọng hỏi: "Chọn công pháp có tính phí như áo chăn không?"
+
+Người dẫn lớp luật nghe thấy, đáp ngay: "Tông môn không bán công pháp nhập môn cho tân đệ tử. Nhưng ngọc giản, phòng đọc, người giảng, thuốc hỗ trợ và thời gian dẫn khí đều theo khế phụ. Công pháp khác nhau, phần đối chiếu khác nhau. Đừng nghe ai nói pháp môn là miễn."
+
+Niềm vui trong phòng không tắt hẳn, chỉ bị đặt thêm một mép giấy.
+
+Lâm Thất nhìn thẻ nợ trong tay. Nửa tháng qua, nhờ rửa mương, đổ tro, vét rãnh và ghi hộ hai tờ quy chế phụ cho người không biết chữ, hắn giữ khoản nợ không phình quá nhanh. Nhưng "không phình quá nhanh" không phải trả xong. Một lần chọn sai ở công pháp có thể khiến mọi tính toán trước đó thành chuyện nhặt thóc sau khi kho đã cháy.
+
+Công pháp đường nằm sau sân luyện, là một tòa nhà gỗ hai tầng cũ hơn quảng trường tiếp dẫn nhưng sạch hơn khu Bính. Trước cửa treo bảng chữ `pháp không truyền miệng, khế không ký thay`. Dưới bảng, hai đệ tử cũ đứng giữ hàng. Người nào vào cũng phải đặt thẻ nợ lên phiến đá, xác nhận đã nghe ba điều: không tự sao pháp, không đổi pháp cho người khác đọc, không lấy lời quảng cáo của đệ tử cũ làm căn cứ khi khiếu nại.
+
+Điều thứ ba làm Lâm Thất chú ý lâu hơn hai điều đầu.
+
+Trong sảnh, tân đệ tử đứng chật quanh ba tấm bảng lớn. Mỗi bảng ghi một nhóm công pháp nhập môn.
+
+Bảng thứ nhất dùng mực đỏ nhạt: `Xung Tuyền Công`. Dưới tên có mấy dòng chữ ngay ngắn: dẫn khí nhanh, mở mạch mạnh, thích hợp người căn khí khá, có thể trong ba tháng thấy thành quả rõ. Phí công khai gồm một ngọc giản đọc một lần, ba buổi giảng riêng, thuốc thông mạch cấp thấp tối thiểu ba phần. Điều khoản phụ ghi nếu dẫn khí thất bại do thân thể không chịu nổi, thuốc đã dùng không hoàn.
+
+Bảng thứ hai dùng mực xanh: `Thanh Khê Dẫn`. Lời giới thiệu mềm hơn: ổn định, ít sai mạch, phù hợp đa số tân đệ tử. Phí gồm ngọc giản, sáu buổi giảng chung, điểm công định kỳ trả trong ba tháng đầu. Nếu người tu bỏ giữa chừng, phần giảng chưa nghe vẫn tính một nửa vì đã giữ chỗ.
+
+Bảng thứ ba dùng mực đen bình thường: `Dẫn Khê Quyết`. Giới thiệu chỉ có hai câu: dẫn khí chậm, nền thấp, ít cần vật ngoài. Phí gồm ngọc giản cũ, một buổi giảng chung, tự luyện theo giờ phòng chung. Dưới cùng ghi: công pháp có trần nhập môn thấp, người muốn đổi sang pháp cao hơn sau này phải tự chịu phí chuyển và rủi ro xung mạch.
+
+Đám người mới tự nhiên dồn quanh hai bảng đầu.
+
+Một chấp sự công pháp đường đứng trên bậc, áo xanh đã bạc nhưng cổ tay sạch. Ông ta không tô son lời nói, chỉ đọc từng nhóm bằng giọng đều. "Xung Tuyền Công nhanh, nhưng nhanh không phải hợp mọi người. Thanh Khê Dẫn ổn, nhưng ổn không phải rẻ. Dẫn Khê Quyết chậm, nhưng chậm không phải vô dụng. Tự đọc điều khoản, tự chọn. Người không biết chữ đứng sang trái, có đệ tử đọc cho nghe. Đọc xong lăn thẻ xác nhận đã nghe."
+
+Ông nói trung tính đến mức giống công bằng.
+
+Nhưng ngay sau phần đọc chính, một đệ tử áo mới đứng cạnh bảng Xung Tuyền Công mỉm cười nói thêm: "Ba tháng thử luyện, ai không dẫn khí nhập thân rất khó được đánh giá tốt. Xung Tuyền Công dù cần thuốc, nhưng một bước nhanh hơn, sau này nhận nhiệm vụ cũng cao hơn. Người có chí không nên chỉ nhìn khoản trước mắt."
+
+Lời ấy không sai hoàn toàn.
+
+Một đệ tử khác bên bảng Thanh Khê Dẫn cũng nói: "Thanh Khê Dẫn là pháp nhiều người chọn nhất. Phòng giảng đông, có bạn cùng luyện, sai còn dễ hỏi. Đừng vì tiếc vài điểm công mà để mình lạc nhịp."
+
+Lời ấy cũng không sai.
+
+Không ai đứng cạnh bảng Dẫn Khê Quyết nói gì. Ngọc giản đặt dưới bảng ấy cũ hơn hai bên, mép hộp gỗ còn mẻ một góc. Một vài người liếc qua rồi bật cười. "Chậm, nền thấp, nghe đã biết dành cho người không muốn tu."
+
+Chu Hòe chen đến bảng Xung Tuyền Công, mắt sáng lên. Thân thể hắn khỏe, căn cốt thổ mộc tuy tạp nhưng độ sáng hơn Lâm Thất một chút. Hắn cần thứ gì đó chứng minh việc bị kéo lên núi không chỉ là làm công trả nợ. Bảng đỏ cho hắn cảm giác có thể giành lại mặt mũi bằng một lần ký.
+
+Chu Uyển đứng giữa hai bảng Thanh Khê Dẫn và Dẫn Khê Quyết, do dự. Nàng không khỏe, lại sợ nợ, nhưng nàng cũng sợ bị bỏ lại sau. Người nhỏ thường bị người khác quyết thay quá nhiều, nên khi đến lượt tự chọn, cái tự chọn ấy càng nặng.
+
+Lâm Thất không chen. Hắn đứng sau cùng, đọc ba bảng từ dưới lên.
+
+Người viết khế thường đặt chỗ khó chịu nơi mắt người ta mỏi nhất.
+
+Ở Xung Tuyền Công, dòng dưới cùng ghi thuốc thông mạch "tối thiểu" ba phần, không ghi tối đa. Nếu dẫn khí nhanh làm mạch đau, y phòng chắc chắn tính riêng. Nếu không dùng thuốc đủ, thất bại có thể bị ghi do người tu không theo quy trình. Nói cách khác, nhanh là đường có cổng cao, vào rồi còn nhiều cửa thu.
+
+Ở Thanh Khê Dẫn, điểm công định kỳ khóa trong ba tháng đầu. Dù tháng này hắn thiếu công vì nhiệm vụ khác, công pháp vẫn lấy phần của nó trước. Ổn định như một người giữ tay con nợ đều đều mỗi ngày, không bóp chết nhưng không buông.
+
+Ở Dẫn Khê Quyết, dòng xấu nằm ngay trước mắt: chậm, trần thấp. Nó không giả làm tốt. Phí rõ. Rủi ro đổi pháp sau này cũng rõ. Một món nợ người ta gọi xấu công khai đôi khi ít đáng sợ hơn món nợ được nói bằng giọng đẹp.
+
+Tạ Thanh Nghi có mặt ở góc sảnh, trước mặt đặt một hộp hồ sơ nhỏ. Nàng không tham gia giới thiệu công pháp, chỉ kiểm xem người đọc khế có đọc đủ dòng. Mỗi khi một đệ tử cũ nói quá lời, nàng dùng thước đồng gõ nhẹ xuống bàn. Âm thanh không lớn, nhưng đủ để câu tiếp theo bớt trơn.
+
+Khi Lâm Thất đứng trước bảng Dẫn Khê Quyết lâu hơn bình thường, nàng nhìn sang.
+
+"Ngươi định chọn pháp này?" nàng hỏi.
+
+"Đang đọc."
+
+"Đọc thì nhớ đọc cả dòng trần thấp. Dẫn Khê Quyết vào khí chậm. Ba tháng đầu người khác đã cảm khí rõ, ngươi có thể còn đang học cách không để khí tản khỏi đầu ngón tay."
+
+"Dòng ấy viết rõ."
+
+"Viết rõ không có nghĩa người ta thật sự hiểu." Tạ Thanh Nghi nhìn bảng đỏ bên kia, nơi Chu Hòe đang nghe đệ tử cũ kể chuyện một người dùng Xung Tuyền Công trong hai tháng đã nhận nhiệm vụ ba điểm. "Người nghèo dễ sợ nợ đến mức chọn đường làm mình mãi thấp. Sợ quá cũng là một loại sai."
+
+Lâm Thất nghe hết, không vội phản bác. Nàng nói không phải để ép hắn mua pháp đắt. Nàng thật sự nghĩ chọn quá thấp có thể khóa tương lai. Một người giữ khế tin vào điều khoản, nhưng cũng tin người có khả năng trả giá để lên cao nên trả.
+
+"Nếu ta chọn Thanh Khê Dẫn," hắn hỏi, "điểm công định kỳ lấy trước bếp ăn hay sau bếp ăn?"
+
+Tạ Thanh Nghi đáp: "Sau bếp cơ bản, trước phần ăn thêm. Trước phí ở nâng cấp, sau thuốc cấp cứu. Nếu thiếu, phần chưa trả cộng vào cuối tháng."
+
+"Nếu tháng đó nhận nhiệm vụ linh điền bị phạt?"
+
+"Phạt công vụ ưu tiên hơn công pháp."
+
+"Vậy công pháp bị thiếu, tính lãi?"
+
+Nàng im một hơi. "Tính phí chậm nộp, không gọi là lãi."
+
+"Khác nhau ở tên?"
+
+"Khác nhau ở cách ghi và mức tính." Nàng cau mày nhẹ. "Ngươi không cần dùng giọng ấy. Ta không đặt phí."
+
+"Ta biết." Lâm Thất nhìn bảng. "Ta chỉ cần biết nó nằm trước hay sau bữa cơm."
+
+Tạ Thanh Nghi không nói tiếp.
+
+Lâm Thất đặt tay lên ngực áo, như chỉnh lại vạt. Sổ đen nằm im từ sáng, nhưng khi hắn đứng giữa ba bảng công pháp, nó lạnh lên rất nhẹ. Không mạnh như lúc qua cổng. Không sắc như khi thấy mã thẻ Lâm Trường An. Chỉ lạnh vừa đủ để hắn biết trang nào đó bên trong đang mở.
+
+Hắn không muốn dùng.
+
+Những điều khoản công khai đã đủ để hắn chọn Dẫn Khê Quyết. Nhưng hắn cũng biết có những khoản không ghi dưới bảng, giống nhánh nước rỉ ngoài cọc mương. Nếu không nhìn, lựa chọn của hắn có thể chỉ là một kiểu mù tiết kiệm.
+
+Lâm Thất lùi vào góc khuất gần kệ ngọc giản cũ, mở sổ trong tay áo chỉ bằng khe hẹp. Hắn không đặt sổ ra ngoài. Ngón tay chạm lên mép trang, thấp giọng như tự đọc quy chế:
+
+"Xem lãi ẩn của ba pháp nhập môn."
+
+Sổ lạnh hơn.
+
+Trang giấy trống hiện chữ chậm, từng nét như bị kéo từ mực cũ. Nhưng trước dòng dữ kiện, một hàng chữ nhỏ xuất hiện trước:
+
+```text
+Vay một hơi đọc pháp, trả bằng một đêm dẫn khí hụt.
+```
+
+Lâm Thất nhìn dòng ấy rất lâu.
+
+Một đêm dẫn khí hụt nghĩa là gì, hắn chưa hoàn toàn hiểu. Nhưng hắn hiểu chữ "trả". Sổ không cho xem miễn phí. Nó đặt giá trước. Nếu hắn muốn nhìn, hắn phải chấp nhận đêm đầu tu luyện sẽ mất vào thất bại. Với người chọn công pháp chậm, một đêm cũng là thứ không rẻ.
+
+Hắn khép sổ lại nửa tấc, gần như định bỏ.
+
+Ngay lúc ấy, Chu Hòe bên bảng đỏ cười khàn: "Thuốc thì kiếm công trả. Không nhanh, ba tháng sau bị đẩy lao dịch thì còn công pháp làm gì?"
+
+Câu ấy cũng hợp lý.
+
+Lâm Thất mở sổ ra.
+
+Chữ hiện:
+
+```text
+Xung Tuyền Công: khí vào nhanh, thuốc theo mạch. Người căn tạp dùng thiếu thuốc, nợ thân tăng.
+Thanh Khê Dẫn: khí vào đều, công theo tháng. Người điểm công thấp, nợ kỳ chồng.
+Dẫn Khê Quyết: khí vào chậm, ít vật ngoài. Từng dùng cho người giữ mạch ngoại vi.
+```
+
+Chỉ vậy.
+
+Không có câu nên chọn. Không có bí quyết giảm phí. Không nói "người giữ mạch ngoại vi" là tốt hay xấu. Sổ đặt thêm ba hòn đá lên cân, rồi dừng. Ở trang cuối, dòng giá vừa hiện không mất đi, như đã chờ đêm nay.
+
+Lâm Thất khép sổ, mồ hôi lạnh rất mỏng ở lưng. Người giữ mạch ngoại vi. Hắn đã thấy chữ Khê Tâm trong sổ công đường, thấy tên Lâm Trường An cạnh tuyến mương cũ. Bây giờ Dẫn Khê Quyết lại từng dành cho người giữ mạch ngoại vi. Một công pháp bị xem thường không chắc là rác. Nó có thể là dụng cụ của loại người bị đặt ở nơi tông môn không muốn nói lớn.
+
+Nhưng hắn không chọn vì câu ấy.
+
+Nếu chọn Xung Tuyền Công, chỉ cần thiếu một phần thuốc, thân thể hắn thành nơi trả nợ. Nếu chọn Thanh Khê Dẫn, điểm công bị khóa trước khi hắn biết tháng sau có phạt nào rơi xuống. Dẫn Khê Quyết chậm, trần thấp, đổi sau có giá, nhưng mọi khoản trước mắt được viết rõ, và viết trong tầm hắn có thể chịu.
+
+Người đang nợ không nên vay khoản mình không hiểu lãi. Còn khoản hiểu rõ là thấp, ít nhất có thể tính cách bò qua.
+
+Hắn bước đến bàn đăng ký Dẫn Khê Quyết.
+
+Đệ tử giữ bàn ngẩng đầu, nhìn hắn một cái rồi nhìn thẻ. "Lâm Thất, nhóm giám sát nhẹ. Ngươi chắc? Dẫn Khê Quyết ba tháng đầu khó có thành tích đẹp."
+
+"Chắc."
+
+"Đọc điều khoản chưa?"
+
+"Đã đọc."
+
+"Phí ngọc giản cũ một phần, giảng chung một buổi, phòng dẫn khí theo giờ chung. Không kèm thuốc. Tự luyện sai mạch nhẹ tự điều, sai nặng đến y phòng tính riêng. Sau này đổi pháp, phí chuyển không giảm vì đã học pháp thấp. Nhắc lần cuối, chắc?"
+
+"Chắc."
+
+Tạ Thanh Nghi đi đến cạnh bàn. "Ngươi chọn vì sợ nợ?"
+
+"Vì điều khoản công khai của nó là món duy nhất ta thấy mình trả nổi."
+
+"Trả nổi không phải lúc nào cũng đủ."
+
+"Không trả nổi thì chắc chắn không đủ."
+
+Nàng nhìn hắn, ánh mắt không đồng ý hẳn, nhưng cũng không xem hắn là kẻ nhát như đám đang cười phía sau. "Người có tư chất thấp chọn pháp chậm, muốn đổi sau sẽ khó."
+
+"Khó là dòng viết ở bảng. Thuốc tối thiểu, phí chậm nộp, nợ thân tăng thì không viết lớn bằng."
+
+Tạ Thanh Nghi nghe đến "nợ thân tăng", mắt hơi động. "Ai nói với ngươi chữ đó?"
+
+Lâm Thất rũ mắt. "Nghe đệ tử cũ nói thiếu thuốc hại thân."
+
+Nàng không tin hết, nhưng không có căn cứ hỏi thêm. Sau cùng, nàng chỉ đặt thước đồng lên mép khế phụ của Dẫn Khê Quyết, kiểm dòng cuối rồi nói với đệ tử giữ bàn: "Đọc đủ cho hắn ký."
+
+Đệ tử kia đọc. Lâm Thất nghe từng chữ. Ký tên. Lăn thẻ. Ngọc giản cũ được đưa đến tay hắn trong một hộp gỗ mỏng. Không có ánh sáng rực rỡ. Không có tiếng đạo âm. Nó chỉ hơi ấm, như một viên đá đặt gần bếp, trên mặt khắc ba chữ `Dẫn Khê Quyết` đã mòn.
+
+Phía bên kia, Chu Uyển cuối cùng chọn Thanh Khê Dẫn. Nàng nhìn Lâm Thất như muốn hỏi có nên không, nhưng hắn không ra hiệu. Mỗi thân thể có khoản chịu được khác nhau. Nàng sợ lạnh, sợ lạc nhịp, và còn đủ điểm công gia đình gửi lên thêm một chút qua vòng bạc chưa bán. Lâm Thất không thể đem cái nghèo của mình làm thước cho nàng.
+
+Chu Hòe ký Xung Tuyền Công.
+
+Hắn không chỉ ký. Hắn còn được một đệ tử công pháp đường dẫn đến bàn phụ, nơi đặt hộp thuốc thông mạch. Vì thân thể hắn khỏe và căn cốt độ sáng hơn nhiều tân đệ tử, chấp sự cho phép hắn nhận trước ba phần thuốc, trả trong tháng sau nếu nhiệm vụ đủ điểm. Lời chấp sự rất đẹp: "Người có lực nên dùng lực lúc còn nóng. Tông môn không để hạt giống tốt thiếu nước ở cửa đầu."
+
+Chu Hòe nghe chữ hạt giống tốt, lưng thẳng lên. Nửa tháng qua, đây là lần đầu có người trên núi gọi hắn bằng thứ gần giống khen. Hắn đặt thẻ lên phiến đá, ký nhận rất nhanh, nhanh đến mức Tạ Thanh Nghi bên này chưa kịp quay sang.
+
+Phiến đá sáng đỏ một nhịp.
+
+Lâm Thất cầm hộp ngọc giản cũ, nhìn thẻ của Chu Hòe bị giữ lại lâu hơn bình thường trên mặt đá. Đệ tử giữ bàn thuốc mỉm cười, đóng dấu vào khế phụ, rồi đưa ba gói thuốc nhỏ như đưa ba bậc thang.
+
+Chu Hòe ôm thuốc vào ngực. Ánh mắt hắn sáng thật, không phải vì đèn trong sảnh, mà vì hắn vừa nhìn thấy một con đường nhanh hơn bùn, tro và kho đêm.
+
+Chỉ khi hắn quay đi, Lâm Thất mới thấy dưới dấu son vừa đóng, mép giấy khế phụ thấm ra một vệt mực rất mảnh, giống rễ cỏ đen bò vào tên người ký.
