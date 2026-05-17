@@ -1,0 +1,197 @@
+# Chương 22: Kho Công Pháp Cũ
+
+Lâm Thất bị gọi lên khế phòng trước giờ cơm trưa.
+
+Người đưa lời gọi là một đệ tử áo xám, giọng đều như đọc bảng giá: "Dẫn Khê Quyết của ngươi thiếu phụ lục công pháp. Trong ba ngày không bổ sung, khế phòng có quyền ghi ngươi tu sai pháp. Tu sai pháp bị cắt quyền vào phòng tĩnh tu một tháng."
+
+Ba ngày.
+
+Một tháng.
+
+Lâm Thất nhận thẻ gọi, ngón tay dừng trên dấu đỏ ở góc thẻ. Dấu ấy không phải dấu phạt, nhưng cũng không phải dấu nhắc thường. Nó giống kiểu khế phòng thích dùng: chưa đánh ngươi, chỉ đặt roi lên bàn cho ngươi tự nhìn.
+
+"Ai phát hiện thiếu phụ lục?" hắn hỏi.
+
+Đệ tử áo xám nhìn danh sách. "Kho công pháp đối chiếu định kỳ."
+
+"Ta đã nhận pháp ở kho thư cũ."
+
+"Vậy càng phải bổ sung. Công pháp cũ dễ sai bản."
+
+Câu ấy nghe có lý.
+
+Ở Linh Khê Tông, điều có lý thường nguy hiểm hơn điều vô lý. Điều vô lý còn có thể cãi. Điều có lý được viết thành quy trình, đóng dấu, rồi đặt lên cổ người ta như một sợi dây không cần thắt chặt ngay.
+
+Lâm Thất đem thẻ gọi đến sân khế phòng.
+
+Tạ Thanh Nghi đang đứng dưới mái hiên, trước mặt là ba chồng hồ sơ. Nàng không mặc áo ngoài mới như hôm ở y phòng, chỉ buộc tay áo gọn hơn. Thấy hắn, nàng nhận thẻ, nhìn dấu đỏ, rồi nói: "Ta biết."
+
+"Biết trước?"
+
+"Sáng nay kho công pháp gửi danh sách. Dẫn Khê Quyết của ngươi nằm trong nhóm phải đối chiếu."
+
+"Chỉ mình ta?"
+
+"Không." Nàng lật một tờ giấy. "Bảy bản pháp quyết cũ. Nhưng chỉ Dẫn Khê Quyết có người đang tu."
+
+Lâm Thất nghe ra phần bị giấu trong câu nói ấy. Một công pháp không ai tu nhiều năm, vừa có người chọn thì thiếu phụ lục. Nếu gọi đó là trùng hợp, hắn phải trả giá quá rẻ cho sự ngây thơ.
+
+Tạ Thanh Nghi đưa lại thẻ. "Ta đi cùng ngươi."
+
+"Vì giám sát?"
+
+"Vì nếu ngươi tự vào kho cũ, bất kỳ trang nào thiếu cũng có thể tính vào tay ngươi."
+
+Nàng nói xong mới ngẩng lên nhìn hắn. "Đừng nghĩ nhiều. Ta không làm việc này để giúp ngươi trái quy. Ta muốn biết bản kho đang dùng khác bản lưu ở đâu."
+
+Lâm Thất gật đầu.
+
+Một câu không đồng ý hoàn toàn đôi khi đáng tin hơn một lời hứa tốt đẹp.
+
+Kho công pháp cũ nằm sau kho thư, thấp hơn mặt sân nửa tầng. Cửa đá phủ rêu xanh, phía trên treo bảng gỗ đã bạc chữ. Không có đệ tử trẻ đứng canh, chỉ có một lão quản kho mắt mờ ngồi bên bếp than, tay cầm chổi lông quét bụi khỏi hộp ngọc.
+
+Tạ Thanh Nghi đưa lệnh đối chiếu.
+
+Lão quản kho đọc chậm, rồi liếc Lâm Thất. "Dẫn Khê?"
+
+"Vâng," Tạ Thanh Nghi nói.
+
+"Lâu rồi không ai hỏi."
+
+"Lâu là bao lâu?"
+
+Lão quản kho không trả lời ngay. Ông đặt lệnh xuống, mở tủ sắt sau lưng. Mỗi ngăn tủ có một thẻ tre ghi tên công pháp. Có thẻ mới, chữ đen còn đậm. Có thẻ cũ đến mức chỉ còn vết khắc. Ông kéo ngăn gần dưới cùng, lấy ra một hộp dài.
+
+Bụi trên hộp rơi xuống như tro.
+
+"Dẫn Khê Quyết có ba bản," lão nói. "Bản giảng pháp, bản khế sử dụng, bản sửa đổi."
+
+Lâm Thất nhớ lúc chọn công pháp, hắn chỉ được phát bản giảng pháp.
+
+Tạ Thanh Nghi cũng nhớ. Nàng hỏi: "Vì sao đệ tử đang tu không nhận đủ bản?"
+
+"Bản khế sử dụng nằm ở khế phòng. Bản sửa đổi thuộc kho." Lão quản kho đặt từng cuộn giấy lên bàn. "Ngày xưa công pháp nào cũng vậy."
+
+"Ngày xưa nào?"
+
+Lão nhìn nàng một cái. "Ngày linh mạch còn đủ cho đệ tử học chậm."
+
+Câu ấy làm căn phòng thấp thêm.
+
+Tạ Thanh Nghi mở bản giảng pháp trước. Chữ trên giấy vàng mỏng, phần đầu giống bản Lâm Thất đang có: dẫn khí theo khe yếu, không cưỡng ép cửa mạch, không lấy tiến cảnh làm chuẩn. Nhưng đến đoạn giữa, bản kho có thêm những dòng chú nhỏ bên lề.
+
+`Khi nghe tiếng nước trong mạch, không đáp.`
+
+`Khi khí lạnh đi ngược, ngừng ba hơi.`
+
+`Khi cổ tay trái hiện vết xám, báo kho mạch.`
+
+Lâm Thất đọc đến dòng thứ ba thì cổ tay trái tê một cái.
+
+Hắn không đưa tay chạm vào Sổ Nợ. Trong kho công pháp cũ, chạm vào thứ gì không cần thiết đều có thể thành lời tự thú.
+
+Tạ Thanh Nghi chuyển sang bản khế sử dụng. Nàng đọc nhanh hơn, nhưng càng đọc, mặt càng ít biểu cảm.
+
+"Bản này không phải khế tu luyện thường," nàng nói.
+
+Lão quản kho thổi bụi trên nắp hộp. "Nó từng là khế phụ trợ."
+
+"Phụ trợ gì?"
+
+"Dẫn mạch."
+
+Hai chữ rơi xuống mặt bàn, nhẹ nhưng không tan.
+
+Lâm Thất hỏi: "Dẫn mạch khác dẫn khí?"
+
+Lão quản kho nhìn hắn. "Dẫn khí là đưa khí vào thân mình. Dẫn mạch là để thân mình nhận ra đường đi của mạch khác. Người tu Dẫn Khê Quyết không mạnh nhanh. Nhưng nếu linh mạch có vết nứt, họ là người nghe thấy trước."
+
+"Vậy vì sao bị hạ thành công pháp rác?"
+
+Lão cười khô. "Cái gì nghe thấy trước thì cũng bị gọi xuống trước."
+
+Tạ Thanh Nghi đặt bản khế xuống. "Năm nào Dẫn Khê Quyết bị rút khỏi danh sách khuyến nghị?"
+
+Lão mở sổ kho. Ông lật từng trang, đầu ngón tay khô cọ lên giấy nghe sột soạt. Đến một trang gần cuối, ông dừng lại.
+
+"Mười bảy năm trước."
+
+Lâm Thất nhìn dòng ghi. Mười bảy năm trước là năm Lâm Trường An mất tin.
+
+Tạ Thanh Nghi cũng tính ra. Nàng không nói tên anh hắn, nhưng bàn tay đang giữ mép sổ hơi dừng. "Lý do rút?"
+
+"Không hợp hướng đào tạo ngoại môn."
+
+"Ai ký?"
+
+Lão quản kho chỉ dấu ấn tròn. Dấu đã mờ, không còn nhìn rõ tên người. Nhưng nét linh ấn bên trong giống một con suối bị chặn bởi ba đường đá.
+
+Tạ Thanh Nghi lấy giấy đối chiếu ra chép lại vết dấu.
+
+Lão quản kho nhíu mày. "Chép dấu kho cần ghi lý do."
+
+"Đối chiếu phụ lục thiếu."
+
+"Lý do ấy đủ cho chữ, không đủ cho dấu."
+
+Tạ Thanh Nghi dừng bút.
+
+Lâm Thất hiểu cái giá đang tới. Muốn một dấu cũ đi ra khỏi kho, phải có người chịu trách nhiệm. Nếu nàng ký, hồ sơ này dính vào nàng. Nếu hắn ký, hắn không có quyền. Nếu không ký, manh mối nằm lại trong bụi.
+
+Hắn nói: "Ghi ta là người yêu cầu đối chiếu."
+
+Tạ Thanh Nghi nhìn hắn. "Ngươi không có quyền yêu cầu chép dấu."
+
+"Vậy ghi ta là người bị kiểm pháp. Nếu sau này có sai, sai bắt đầu từ ta cũng hợp lý hơn."
+
+"Ngươi biết câu này nghĩa là gì không?"
+
+"Biết." Lâm Thất nhìn bản Dẫn Khê trên bàn. "Nếu có ai nói ta cố tình đào hồ sơ cũ, họ có sẵn dòng để phạt."
+
+Tạ Thanh Nghi không đồng ý ngay. Lão quản kho cũng không giục. Bếp than nổ một tiếng nhỏ, như một hạt bụi khô bị lửa cắn.
+
+Cuối cùng Tạ Thanh Nghi viết: `Đệ tử Lâm Thất đang tu Dẫn Khê Quyết yêu cầu đối chiếu phụ lục thiếu để tránh tu sai pháp. Tạ Thanh Nghi giám sát.`
+
+Nàng ký trước, rồi đưa bút cho hắn.
+
+Lâm Thất ký tên.
+
+Mực vừa khô, Sổ Nợ trong tay áo hắn lạnh đi. Không hiện chữ, nhưng hắn biết một dòng mới đã được mở ở đâu đó. Lần này hắn trả giá bằng quyền bị gọi tên nếu hồ sơ thành chuyện.
+
+Lão quản kho lấy bản sửa đổi cuối cùng ra.
+
+Bản này không dài. Nó không giảng cách thổ nạp, không nói cảnh giới, không hứa tiến cảnh. Toàn bộ chỉ là một bảng vị trí trên thân thể: cổ tay trái, khuỷu tay trong, dưới xương sườn, sau gáy, mắt cá chân. Mỗi vị trí đi kèm một dòng chú:
+
+`Có thể dùng làm neo mạch tạm khi người giữ mạch chính suy yếu.`
+
+Lâm Thất đọc chậm từng chữ.
+
+Thân thể người tu công pháp không chỉ là thân thể. Nó có thể thành cột mốc, thành dây dẫn, thành một điểm tạm để linh mạch dựa vào khi thứ bên dưới không còn vững.
+
+Tạ Thanh Nghi khép phụ lục lại rất nhẹ. "Ta sẽ sao một bản hợp lệ cho ngươi."
+
+"Có đủ không?"
+
+"Đủ để khế phòng không phạt ngươi tu sai pháp."
+
+"Còn đủ để biết vì sao anh ta mất tích không?"
+
+Nàng nhìn cửa kho đóng kín. "Chưa."
+
+Lâm Thất biết nàng nói thật.
+
+Khi rời kho, lão quản kho gọi hắn lại. Ông không nhìn Tạ Thanh Nghi, chỉ nói với Lâm Thất: "Dẫn Khê Quyết không làm người ta chết nhanh. Nhưng nó khiến người ta nghe được thứ đáng lẽ người sống bình thường không nên nghe."
+
+Lâm Thất hỏi: "Vậy năm đó người tu nó nghe thấy gì?"
+
+Lão quản kho kéo cửa tủ sắt lại.
+
+"Nghe thấy kho mạch cần người."
+
+Đến chiều, phụ lục thiếu được đóng vào hồ sơ của Lâm Thất. Trên giấy, việc này chỉ là bổ sung công pháp. Một lỗi kho được sửa. Một đệ tử tránh phạt. Một thủ tục kết thúc.
+
+Nhưng trong bản sao Tạ Thanh Nghi đưa hắn, dòng cuối phụ lục không còn là chú thích. Nó giống một cái móc đã tìm thấy cổ tay.
+
+`Neo mạch tạm chỉ dùng khi mạch chính còn sống.`
+
+Lâm Thất cất giấy vào áo, bỗng hiểu chữ "mất tích" của Lâm Trường An từ đầu đến giờ có thể chưa từng nghĩa là rời khỏi tông môn.
