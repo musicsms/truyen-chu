@@ -1,26 +1,22 @@
 # Chương 15: Bẫy Khế Đóng Lại
 
-Sáng ngày tiếp theo, bảy tờ khế phụ cùng lúc được treo ở bảng nhiệm vụ ngoại môn, và tất cả đều ghi hạn nhận trước giờ Ngọ.
+Sáng tiếp theo, bảy tờ khế phụ cùng lúc được treo ở bảng nhiệm vụ ngoại môn, tất cả đều ghi hạn nhận trước giờ Ngọ.
 
-Người mới vừa ăn xong bữa cháo cơ bản đã bị gọi ra công đường. Ông lão râu bạc không có mặt. Người đọc nhiệm vụ là một chấp sự nông vụ họ Tôn, mặt vàng, giọng khàn vì thức đêm. Sau lưng hắn đặt bảy thẻ gỗ, mỗi thẻ buộc một dải giấy nhỏ. Dải nào cũng có dấu nông vụ và dấu công đường, hợp lệ đủ khiến không ai trong sân có thể giả vờ chưa thấy.
+Người mới vừa ăn xong bữa cháo cơ bản đã bị gọi ra công đường. Ông lão râu bạc không có mặt. Người đọc nhiệm vụ là chấp sự nông vụ họ Tôn, mặt vàng, giọng khàn vì thức đêm. Sau lưng hắn đặt bảy thẻ gỗ, mỗi thẻ buộc một dải giấy có đủ dấu nông vụ và công đường.
 
 "Rìa linh điền phía đông cần chỉnh tuyến sau mưa và sâu hại," chấp sự Tôn đọc. "Tân đệ tử từng nhận nhiệm vụ khu ấy hoặc có điểm công liên quan dị thường phải tham gia phụ việc một ngày. Việc nhẹ, nguy hiểm thấp, điểm công theo phần. Ai vắng không lý do, đánh giá tháng hai ghi thiếu phối hợp công vụ."
 
-Đám người mới xôn xao.
+Thiếu phối hợp công vụ không phải lỗi nặng, nhưng với người chưa qua ba tháng, nhiều lỗi nhỏ đủ kéo chìm đánh giá.
 
-Thiếu phối hợp công vụ không phải lỗi nặng, nhưng với người chưa qua ba tháng, nó giống một hòn đá bỏ vào túi khi qua suối. Một hòn không chìm. Nhiều hòn thì khác.
-
-Tên được gọi gồm Lâm Thất, Chu Uyển, Đỗ San, Tống Kỳ, Chu Hòe vừa rời y phòng, thêm hai tân đệ tử từng phụ chuyển bao linh cốc hỏng là Lý Mục và Hứa Đạo. Bảy người. Bảy thẻ.
+Tên được gọi gồm Lâm Thất, Chu Uyển, Đỗ San, Tống Kỳ, Chu Hòe vừa rời y phòng, thêm Lý Mục và Hứa Đạo. Bảy người. Bảy thẻ.
 
 Chu Hòe chống chân còn hơi khập khiễng, sắc mặt khó coi. "Ta đang có giấy y phòng."
 
 Chấp sự Tôn đáp ngay: "Giấy y phòng miễn việc nặng, không miễn ký nhận phân việc nhẹ. Ngươi được xếp ghi số bao và giữ đèn, không xuống mương."
 
-Không sai.
-
 Tống Kỳ nhìn Lâm Thất một cái, giọng châm chọc: "Nhờ có người báo dị thường, bây giờ cả nhóm được nhận việc thêm."
 
-Đỗ San cúi đầu. Nàng thiếu điểm ăn, nghe có điểm công theo phần thì vừa sợ vừa muốn nhận. Chu Uyển đọc thẻ rất lâu. Nàng đã học theo Lâm Thất, không nhìn số điểm trước.
+Đỗ San thiếu điểm ăn, nghe có điểm công theo phần thì vừa sợ vừa muốn nhận. Chu Uyển đọc thẻ rất lâu, không nhìn số điểm trước.
 
 Lâm Thất cũng đọc.
 
@@ -28,9 +24,7 @@ Bảy khế phụ nhìn qua tách rời: người đo cọc, người giữ dây
 
 `Các phần việc cùng tuyến, nếu hao hụt vật tư hoặc sai lệch mốc không xác định được người gây, bảy người nhận việc đồng chịu theo phần đã ký.`
 
-Đồng chịu.
-
-Không phải liên đới toàn bộ. Nghe còn công bằng hơn. Ai ký phần nhiều chịu nhiều, phần ít chịu ít. Người mới nhìn vậy sẽ nghĩ ít nhất mình không gánh hết.
+Đồng chịu. Không phải liên đới toàn bộ, nghe còn công bằng hơn. Ai ký phần nhiều chịu nhiều, phần ít chịu ít.
 
 Lâm Thất nhìn sang bản treo bên cạnh. Dòng hướng dẫn ghi thêm: `người nhận từng phần có quyền đổi phần trước giờ Ngọ; sau giờ Ngọ, khế đồng lại, không đổi, không rút.`
 
@@ -38,11 +32,11 @@ Khế đồng lại.
 
 Hắn chưa thấy cụm này nhiều. "Đồng lại" nghĩa là những khế riêng được khóa vào một mốc thời gian chung, lãi phạt và trách nhiệm tính từ lúc khóa, không phải lúc từng người cầm bút. Hôm qua Tạ Thanh Nghi từng nói khế có thể kéo cả nhóm nếu dùng sai. Hôm nay, có người đem chính điều ấy đặt lên bảng công khai.
 
-Hợp lệ.
+Cuối bản hướng dẫn còn một dòng nhỏ hơn: `lệnh hoãn chỉ có hiệu lực khi dấu hoãn nhập vào thẻ đồng lại hoặc chạm đủ bảy khế trước giờ khóa`. Công đường có thể cho hoãn, nhưng dấu chưa vào khế trước giờ Ngọ thì khế vẫn đóng.
 
-Và rất bẩn.
+Hợp lệ, và rất bẩn.
 
-Vì bảy người này không đứng ngang nhau. Tống Kỳ có điểm công gia đình gửi bù, Hứa Đạo có anh họ ở ngoại môn năm hai, Lâm Thất thuộc nhóm giám sát nhẹ, Chu Hòe còn nợ thuốc thông mạch, Chu Uyển bị Thanh Khê Dẫn khóa điểm định kỳ, Đỗ San thiếu bữa ăn. Một khoản đồng chịu nhỏ đối với người này là phiền, đối với người khác là dây siết cổ.
+Vì bảy người này không đứng ngang nhau. Tống Kỳ có điểm công gia đình gửi bù, Hứa Đạo có anh họ ở ngoại môn năm hai, Lâm Thất thuộc nhóm giám sát nhẹ, Chu Hòe còn nợ thuốc thông mạch, Chu Uyển bị Thanh Khê Dẫn khóa điểm định kỳ, Đỗ San thiếu bữa ăn. Một khoản đồng chịu nhỏ với người này chỉ là phiền, với người khác là dây siết cổ.
 
 Chấp sự Tôn nói: "Tự chọn phần. Ai không chọn trước giờ Ngọ, công đường phân."
 
@@ -54,13 +48,17 @@ Chu Uyển trắng mặt, lùi nửa bước. "Đệ tử không dám."
 
 Lâm Thất nhìn bảy thẻ.
 
-Nếu nhận phần nhẹ nhất, hắn có thể tự giữ rủi ro thấp. Nhưng phần nhẹ thường là phần "xác nhận hiện trạng cuối". Chữ nhẹ nhất nhiều khi là cổng cuối để đổ mọi thứ. Nếu nhận phần đo cọc, hắn có quyền nhìn mốc, nhưng trách nhiệm sai mốc nặng. Nếu để Tống Kỳ nhận xác nhận cuối, người ấy có thể ký nhanh để lấy điểm, kéo cả nhóm vào bẫy. Nếu để Đỗ San nhận chuyển bẫy cũ, nàng yếu, làm hỏng vật tư sẽ đồng chịu. Nếu để Chu Hòe giữ đèn, chân hắn đau, đèn lệch lúc đo cọc có thể thành lỗi hỗ trợ.
+Nếu nhận phần nhẹ nhất, hắn có thể tự giữ rủi ro thấp. Nhưng "xác nhận hiện trạng cuối" là cổng cuối để đổ mọi thứ. Đo cọc cho quyền nhìn mốc, nhưng trách nhiệm sai mốc nặng. Nếu để Tống Kỳ ký cuối, hắn có thể ký nhanh để lấy điểm, kéo cả nhóm vào bẫy. Nếu để người yếu nhận việc tay chân hoặc người đau chân giữ đèn sát mương, lỗi nhỏ cũng thành đồng chịu.
 
 Chọn thế nào cũng có người hở lưng.
 
-Ngón tay Lâm Thất lại đau. Hắn cắn răng, không để lộ.
+Ngón tay Lâm Thất lại đau. Hắn cắn răng.
 
-Tống Kỳ đã lấy thẻ kiểm bao tro mật. Điểm phần đó cao nhất, vì kho ghi có một số bao cũ cần đối chiếu. Hứa Đạo lấy chuyển bẫy cũ, vì anh họ hắn từng nói bẫy nhẹ, dễ làm. Lý Mục lấy giữ dây. Chu Hòe miễn việc nặng nên bị đẩy sang giữ đèn. Đỗ San nhìn phần xác nhận cuối, không hiểu vì sao không ai lấy, tay đã đưa ra.
+Tống Kỳ đã lấy thẻ kiểm bao tro mật, phần điểm cao nhất. Hứa Đạo lấy chuyển bẫy cũ vì nghe nói dễ làm. Lý Mục lấy giữ dây chính. Chu Hòe bị đẩy sang trông đèn. Chu Uyển nhận ghi số sau khi đọc kỹ ô ghi chú.
+
+Còn lại hai thẻ: đo cọc và xác nhận hiện trạng cuối.
+
+Đỗ San nhìn phần xác nhận cuối, không hiểu vì sao không ai lấy, tay đã đưa ra.
 
 Lâm Thất giữ cổ tay nàng lại trước khi nàng chạm thẻ.
 
@@ -80,7 +78,11 @@ Tiếng cười của Tống Kỳ tắt nửa chừng.
 
 Đỗ San nhìn Lâm Thất, môi động nhưng không nói. Nàng biết hắn không làm vì hào phóng. Hắn đang lấy phần nguy hiểm để đổi quyền xem toàn bộ. Nhưng quyền xem toàn bộ không có nghĩa cứu được toàn bộ.
 
-Lâm Thất lấy thẻ xác nhận cuối, rồi nói: "Chu Uyển nhận ghi số. Ngươi viết rõ hơn Chu Hòe. Chu Hòe giữ đèn nhưng không đứng sát mương. Đỗ San giữ dây phụ, không chuyển bẫy. Lý Mục chuyển bẫy, Hứa Đạo đo cọc với ta đổi phần."
+Lâm Thất lấy thẻ xác nhận cuối, đặt tên mình vào ô nhận. Sáu khế đã có chủ: Tống Kỳ kiểm bao, Hứa Đạo chuyển bẫy, Lý Mục giữ dây chính, Chu Hòe trông đèn, Chu Uyển ghi số, Lâm Thất xác nhận cuối. Thẻ còn lại rơi vào tay Đỗ San: đo cọc.
+
+Mặt Đỗ San trắng đi. "Ta không đọc quen bản đồ."
+
+Lâm Thất nhìn Hứa Đạo. "Đổi phần với nàng. Ngươi chuyển bẫy dễ hơn, nhưng đo cọc cần người nhìn được mốc và đi lại chắc chân. Nếu Đỗ San đo sai, bảy người cùng chịu sai mốc."
 
 Hứa Đạo lập tức nhíu mày. "Dựa vào đâu?"
 
@@ -96,21 +98,19 @@ Hứa Đạo lập tức lắc đầu. "Ta không đổi."
 
 Anh họ năm hai của hắn từng nhắc chuyển bẫy cũ có thể nhặt được mảnh tre tốt đem đổi kim chỉ. Hắn không muốn bỏ.
 
-Lâm Thất không ép được.
-
-Một bẫy đóng đúng luật đáng sợ ở chỗ đó: nó cho người trong bẫy quyền tự chọn đoạn dây vừa đủ để họ không tin mình bị kéo.
+Lâm Thất không ép được. Trước giờ Ngọ chỉ được đổi nếu hai bên cùng ký. Hứa Đạo không ký, khế chuyển bẫy vẫn buộc hắn; thẻ đo cọc vẫn buộc Đỗ San. Không ai thiếu vai, cũng không vai nào trống. Chính sự rõ ràng ấy mới làm cái bẫy chặt: người không đủ sức đọc mốc vẫn có thể hợp lệ nhận mốc, vì nàng đã tự chọn phần còn lại.
 
 Giờ Ngọ còn hơn một canh. Bảy người bị đưa đến kho rìa linh điền nhận vật tư. Kho hôm nay khác thường. Bao tro mật cũ xếp thành hai hàng, bẫy tre bó sẵn, dây đo cuộn trong thùng gỗ, đèn phù có ba chiếc mới, bốn chiếc cũ. Trên bàn đặt sổ giao nhận, mỗi dòng chừa một ô ký.
 
-Quản sự Mã không ở đó. Người giữ kho là đệ tử nông vụ trực đêm hôm trước, sắc mặt vẫn khó coi khi thấy Lâm Thất.
+Quản sự Mã không ở đó. Người giữ kho là đệ tử nông vụ trực đêm hôm trước.
 
 "Đọc kỹ rồi ký," hắn nói, giọng không có ý tốt. "Kẻo lát nữa lại nói người khác không cho đọc."
 
 Lâm Thất không đáp. Hắn đọc từng dòng.
 
-Bao tro mật ghi mười hai. Trên sàn có mười hai bao, nhưng hai bao miệng ẩm, trọng lượng nhẹ hơn. Bẫy tre ghi hai mươi bốn, bó ngoài đủ, không biết bên trong có nứt. Dây đo ghi hai cuộn, một cuộn mốc son rõ, một cuộn son mờ. Đèn phù ghi bảy chiếc, nhưng ba mới bốn cũ, thời lượng không đồng đều.
+Bao tro mật ghi mười hai; hai bao miệng ẩm, nhẹ hơn. Bẫy tre ghi hai mươi bốn, bó ngoài đủ, chưa biết bên trong. Dây đo ghi hai cuộn, một cuộn son rõ, một cuộn son mờ. Đèn phù ghi bảy chiếc, nhưng ba mới bốn cũ.
 
-Nếu mọi thứ được giao riêng, người nhận từng món có thể kiểm. Nhưng bảy khế đồng lại sau giờ Ngọ. Khi đồng lại, thiếu hụt không xác định được ai gây sẽ chia theo phần. Kho chỉ cần để một món vốn đã hao trước khi giao mà người mới không phát hiện kịp, cả nhóm chịu.
+Nếu mọi thứ được giao riêng, người nhận từng món có thể kiểm. Nhưng sau giờ Ngọ, thiếu hụt không xác định được ai gây sẽ chia theo phần. Kho chỉ cần để một món vốn đã hao trước khi giao mà người mới không phát hiện kịp, cả nhóm chịu.
 
 Tống Kỳ ký phần bao tro mật rất nhanh.
 
@@ -134,7 +134,7 @@ Chu Uyển run tay nhưng vẫn nói: "Ô ghi chú không cấm."
 
 Đệ tử nhìn Lâm Thất, mắt lạnh đi. "Được. Thích ghi thì ghi."
 
-Họ kiểm bẫy. Hứa Đạo sốt ruột, chỉ muốn vác đi. Lâm Thất bắt mở bó. Trong hai mươi bốn bẫy, ba chiếc nứt miệng, một chiếc thiếu chốt. Hứa Đạo đỏ mặt vì nếu không mở, phần chuyển bẫy của hắn chịu đầu tiên. Hắn bỗng thấy đổi phần vừa rồi có lẽ không tệ, nhưng đã muộn để giữ vẻ.
+Họ kiểm bẫy. Hứa Đạo sốt ruột, chỉ muốn vác đi. Lâm Thất bắt mở bó. Trong hai mươi bốn bẫy, ba chiếc nứt miệng, một chiếc thiếu chốt. Hứa Đạo đỏ mặt vì nếu không mở, phần chuyển bẫy của hắn chịu đầu tiên.
 
 Dây đo cũng có vấn đề. Cuộn son mờ thiếu đúng ba thước ở đoạn cuối, được nối bằng dây gai thường. Lý Mục cầm dây mà mặt tái. "Nếu đo bằng cái này..."
 
@@ -144,17 +144,17 @@ Chu Uyển ghi.
 
 Chu Hòe giữ đèn, cẩn thận kiểm từng chiếc. Hai chiếc cũ ánh sáng yếu. Hắn từng bị vùng bùn hút chân, nên lần này không cãi. "Ghi hai đèn cũ yếu."
 
-Đỗ San đứng bên cạnh, ôm dây phụ, sắc mặt dần đỡ trắng. Những dòng ghi chú giống cọc nhỏ cắm quanh họ. Không chắc chắn cứu được, nhưng ít nhất làm người đặt bẫy không thể nói bùn vốn bằng phẳng.
+Đỗ San cầm thẻ đo cọc đứng cạnh Lý Mục, sắc mặt không đỡ trắng. Dây thiếu ba thước không chỉ là lỗi vật tư của người giữ dây. Khi mốc sai, người đầu tiên bị hỏi sẽ là người cầm khế đo cọc. Những dòng ghi chú giống cọc nhỏ cắm quanh họ, không chắc cứu được, nhưng khiến người đặt bẫy khó nói bùn vốn bằng phẳng.
 
 Đến gần giờ Ngọ, họ đem vật tư ra tuyến cọc. Mốc số chín đến mười hai bị niêm tạm bằng dây đỏ. Cọc số mười một vẫn nghiêng, đất quanh chân bị đào rồi lấp. Nông vụ dựng thêm một cọc phụ cách đó vài thước, nhưng chưa ghi rõ cọc nào dùng cho nhiệm vụ mới.
 
 Lâm Thất nhìn bản đồ giao kèm.
 
-Bản này không giống bản hôm qua hắn đọc. Ở góc dưới có dấu công đường mới, nhưng lề phải thiếu dòng "khế phòng làm chuẩn". Thay vào đó có một dòng khác: `theo mốc hiện trường nông vụ chỉ định`.
+Bản này không giống bản hôm qua hắn đọc. Góc dưới có dấu công đường mới, nhưng lề phải thiếu dòng "khế phòng làm chuẩn". Thay vào đó là: `theo mốc hiện trường nông vụ chỉ định`.
 
 Hắn hiểu ngay.
 
-Nếu ký theo bản này, cọc hiện trường trở thành chuẩn cho nhiệm vụ hôm nay. Sau giờ Ngọ, mọi vật tư và mốc được xem như nhóm đã nhận theo chuẩn mới. Cọc cũ hôm trước không cần kết luận vội. Chỉ cần bảy người này hoàn thành một ngày theo mốc mới, nông vụ có thêm căn cứ rằng hiện trường đã được tân đệ tử nhận lại. Sai cũ được phủ bằng khế mới.
+Nếu ký theo bản này, cọc hiện trường trở thành chuẩn cho nhiệm vụ hôm nay. Sau giờ Ngọ, vật tư và mốc được xem như nhóm đã nhận theo chuẩn mới. Chỉ cần bảy người hoàn thành một ngày theo mốc ấy, sai cũ được phủ bằng khế mới.
 
 Hợp lệ nếu khế phòng không kịp chặn.
 
@@ -164,7 +164,7 @@ Lâm Thất chạm vào sổ đen qua lớp áo. Ngón tay đau nhói trước k
 
 Không được.
 
-Sổ chưa giúp. Hoặc đúng hơn, cái giá trước đó đang đứng chặn cửa. Nếu hắn cố dùng, chưa chắc đọc được gì trước giờ Ngọ, mà thân thể có thể gãy ngay giữa tuyến cọc. Hắn phải dùng những gì đã thấy bằng mắt.
+Sổ chưa giúp. Cái giá trước đó đang đứng chặn cửa. Nếu cố dùng, chưa chắc đọc được gì trước giờ Ngọ, mà thân thể có thể gãy ngay giữa tuyến cọc. Hắn phải dùng những gì đã thấy bằng mắt.
 
 "Không ký xác nhận cuối theo bản này," hắn nói.
 
@@ -174,21 +174,19 @@ Tống Kỳ bực bội. "Ngươi đã cầm thẻ đó."
 
 Đệ tử nông vụ đi theo họ nói: "Sau giờ Ngọ không ký, tính từ chối nhiệm vụ. Bảy khế vẫn đồng lại, người giữ xác nhận cuối chịu phần không hoàn tất cao nhất."
 
-Đây là dao đặt đúng cổ hắn.
+Đây là dao đặt đúng cổ hắn. Không ký, hắn chịu nặng. Ký, nhóm bị khóa. Kéo mọi người bỏ nhiệm vụ, bảy người đều thiếu phối hợp công vụ, gia đình có khế bảo lãnh bị ảnh hưởng. Tự mình chịu cũng không cứu được sáu người, vì khế đồng lại vẫn kéo họ theo phần đã nhận vật tư.
 
-Nếu hắn không ký, hắn chịu nặng. Nếu ký, nhóm bị khóa. Nếu kéo mọi người bỏ nhiệm vụ, bảy người đều thiếu phối hợp công vụ, gia đình có khế bảo lãnh bị ảnh hưởng. Nếu chỉ tự mình chịu, có thể cứu sáu người khỏi ký cuối, nhưng khế đồng lại vẫn kéo họ theo phần đã nhận vật tư.
+Hắn nhìn lại các dòng ghi chú Chu Uyển đã viết. Bao ẩm. Bẫy nứt. Dây thiếu ba thước. Đèn yếu. Bản đồ thiếu dòng lề. Chúng chỉ có tác dụng nếu được đưa vào trước giờ Ngọ như điều kiện nhận, không phải sau. Lệnh hoãn cũng vậy: phải chạm vào thẻ đồng lại hoặc đóng lên đủ bảy dải khế trước khi ánh khóa sáng. Giấy được công đường cho phép nhưng chưa nhập khế chỉ là lời đến muộn.
 
-Hắn nhìn lại các dòng ghi chú Chu Uyển đã viết. Bao ẩm. Bẫy nứt. Dây thiếu ba thước. Đèn yếu. Bản đồ thiếu dòng lề. Những ghi chú này chỉ có tác dụng nếu được đưa vào trước giờ Ngọ như điều kiện nhận, không phải sau.
-
-"Chu Uyển," hắn nói rất nhanh, "chép lại tất cả ghi chú vào mép bản giao. Đỗ San, đem bản ấy chạy về công đường, tìm ông lão râu bạc hoặc bất cứ người khế phòng nào. Nói điều kiện nhận vật tư chưa được đóng dấu, xin hoãn đồng lại."
+"Chu Uyển," hắn nói rất nhanh, "chép lại tất cả ghi chú vào mép bản giao. Đỗ San, đem bản ấy chạy về công đường, tìm ông lão râu bạc hoặc bất cứ người khế phòng nào. Nói người đo cọc phát hiện dây thiếu và bản đồ lệch, xin dấu hoãn đồng lại. Nhớ nói dấu phải đem về nhập vào bảy khế trước giờ Ngọ."
 
 Đỗ San hoảng. "Ta chạy?"
 
-"Ngươi nhẹ nhất. Chạy nhanh hơn Chu Hòe. Nếu bị hỏi, nói ngươi là người giữ dây phụ, dây thiếu, cần xác nhận trước khi đồng lại."
+"Ngươi là người đo cọc. Dây thiếu, bản đồ lệch, ngươi có lý do chính đáng nhất để xin đối chiếu." Lâm Thất nhìn mặt trời. "Ngươi cũng nhẹ nhất, chạy nhanh hơn Chu Hòe. Nếu ở lại, ngươi phải đo bằng dây lỗi. Nếu chạy, khế đo cọc tạm thiếu người, nhưng trước giờ Ngọ còn có thể hoãn hoặc đổi. Sau giờ Ngọ thì không."
 
 Tống Kỳ lập tức nói: "Nàng chạy thì phần việc thiếu người!"
 
-"Thiếu người trước giờ Ngọ có thể đổi. Sau giờ Ngọ không đổi được." Lâm Thất nhìn Lý Mục. "Ngươi giữ dây phụ thay nàng. Hứa Đạo, mở hết bẫy nứt đặt riêng. Chu Hòe, đèn yếu đặt riêng. Tống Kỳ, ngươi muốn không đồng chịu bao ẩm thì đứng cạnh bao, đừng để ai nói do nhóm làm ướt thêm."
+"Thiếu người đo cọc trước giờ Ngọ là lý do hoãn, không phải lỗi đã khóa. Sau giờ Ngọ mới thành thiếu việc." Lâm Thất nhìn Lý Mục. "Ngươi giữ nguyên dây chính, không đo thay nàng. Hứa Đạo, mở hết bẫy nứt đặt riêng. Chu Hòe, đèn yếu đặt riêng. Tống Kỳ, ngươi muốn không đồng chịu bao ẩm thì đứng cạnh bao, đừng để ai nói do nhóm làm ướt thêm."
 
 Tống Kỳ tức nhưng vẫn đứng cạnh bao. Hắn không tin Lâm Thất, nhưng tin nợ sẽ rơi lên đầu mình nếu không giữ bao.
 
@@ -196,11 +194,11 @@ Tống Kỳ tức nhưng vẫn đứng cạnh bao. Hắn không tin Lâm Thất,
 
 Mặt trời lên gần giữa trời.
 
-Thời gian trước giờ Ngọ không dài, nhưng khi chờ một người chạy về công đường, nó dài như cả buổi xét việc. Đệ tử nông vụ đứng cạnh cọc, khoanh tay. "Hết giờ không có dấu hoãn, khế tự đồng lại."
+Thời gian trước giờ Ngọ không dài, nhưng khi chờ một người chạy về công đường, nó dài như cả buổi xét việc. Đệ tử nông vụ đứng cạnh cọc, khoanh tay. "Hết giờ dấu hoãn chưa nhập khế, khế tự đồng lại."
 
 Lâm Thất nhìn đường.
 
-Đỗ San chạy nhanh thật. Nhưng công đường xa hơn khi người ta tính bằng hơi thở. Nàng còn phải tìm đúng người, phải nói không vấp, phải không bị chặn vì tân đệ tử cầm bản giao chưa đóng dấu. Một cách thoát có quá nhiều cửa là một cách thoát không dành cho tất cả.
+Đỗ San chạy nhanh thật. Nhưng công đường xa hơn khi người ta tính bằng hơi thở. Nàng còn phải tìm đúng người, nói không vấp, không bị chặn vì tân đệ tử cầm bản giao chưa đóng dấu. Một cách thoát có quá nhiều cửa không dành cho tất cả.
 
 Chu Uyển thấp giọng: "Nếu nàng kịp, chúng ta đều thoát?"
 
@@ -214,7 +212,7 @@ Tống Kỳ nghe thấy, mặt đổi sắc. "Ngươi nói gì?"
 
 "Ta nói cân bao. Ngươi ký trước."
 
-Tống Kỳ bước tới như muốn túm áo hắn. Chu Hòe chống đèn chắn ngang, chân còn đau nhưng mắt lạnh. "Đừng. Muốn đánh thì đợi sau giờ Ngọ, cho người ta ghi thêm lỗi."
+Tống Kỳ bước tới như muốn túm áo hắn. Chu Hòe chống đèn chắn ngang. "Đừng. Muốn đánh thì đợi sau giờ Ngọ, cho người ta ghi thêm lỗi."
 
 Tống Kỳ dừng lại, thở hổn hển.
 
@@ -242,7 +240,11 @@ Ba tiếng.
 
 "Công đường cho hoãn..." hắn nói, rồi nhìn ánh sáng đã tắt trên bảy khế. Câu phía sau mắc lại.
 
-Lâm Thất nhận bản giấy từ tay Đỗ San. Trên đó có một dấu hoãn màu đỏ, đóng lệch vì vội. Dấu thật. Lệnh thật. Chỉ chậm hơn chuông một đoạn ngắn.
+Lâm Thất nhận bản giấy từ tay Đỗ San. Trên đó có một dấu hoãn màu đỏ, đóng lệch vì vội. Dấu thật. Lệnh thật. Nhưng dấu ấy chưa từng chạm vào thẻ đồng lại, cũng chưa đóng lên bảy dải khế trước khi ánh khóa tắt.
+
+Nó không phải giả.
+
+Chỉ là muộn.
 
 Đỗ San nhìn hắn bằng đôi mắt đỏ vì chạy. "Ta... ta chạy hết sức."
 
