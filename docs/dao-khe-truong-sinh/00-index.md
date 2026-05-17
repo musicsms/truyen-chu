@@ -11,4 +11,4 @@
 ## Current Scope
 
 Arc 1: `Ba Tháng Ngoại Môn`, 18 chapters.
-Arc 2: `Khế Công Pháp`, chapters 19-38 planned; chapters 19-27 drafted.
+Arc 2: `Khế Công Pháp`, chapters 19-38 planned; chapters 19-30 drafted.
