@@ -22,7 +22,7 @@ Bên cạnh họ, một người đàn bà nhà khác nhìn chiếc vòng bạc 
 
 Mẹ Chu Uyển nghe thấy, mặt đỏ lên. Cha nàng định quay lại nói gì, nhưng Chu Uyển kéo tay áo ông. Cô bé cúi đầu, giấu vòng vào tay áo. Niềm vui vừa hiện đã học cách nhỏ lại.
 
-Ở phía khác, thiếu niên họ Chu mà chấp sự nhắc sáng sớm đang khóc đến khản. Hắn lớn hơn Lâm Thất một tuổi, vai rộng, tên Chu Hòe. Cha hắn đêm qua ngã bệnh thật, nằm trong nhà không ra tiễn được. Người bảo lãnh của nhà hắn đã ký thay. Mẹ hắn đứng ngoài vạch dây đỏ, hai tay nắm vào dây đến mức bị sợi đỏ cứa da.
+Ở phía khác, một thiếu niên họ Chu đang khóc đến khản. Hắn lớn hơn Lâm Thất một tuổi, vai rộng, tên Chu Hòe, được đưa vào danh sách rời thôn vào phút cuối vì người bảo lãnh của nhà hắn đã ký thay. Cha hắn đêm qua ngã bệnh thật, nằm trong nhà không ra tiễn được. Mẹ hắn đứng ngoài vạch dây đỏ, hai tay nắm vào dây đến mức bị sợi đỏ cứa da.
 
 "Cho nó ở lại một ngày," bà van. "Một ngày thôi. Cha nó chưa nhìn nó đi."
 
@@ -178,10 +178,10 @@ Những mái rạ thấp xuống sau bờ lau. Gốc hòe sân đình chỉ còn
 
 Đệ tử ghi sổ đi dọc khoang thuyền, phát cho mỗi tân đệ tử một thẻ tre tạm. "Giữ kỹ. Mất thẻ tính phí làm lại. Đến trạm dịch cuối đối chiếu. Ai tự ý đổi chỗ, đổi đồ, nhận đồ chưa ghi, tự chịu phạt."
 
-Thẻ của Lâm Thất mỏng, trên đó có tên, căn cốt, quê quán, khế liên quan. Ở góc dưới có một dòng nhỏ: "hành trình nhập môn: đã mở."
+Thẻ của Lâm Thất mỏng, trên đó có tên, căn cốt, quê quán, khế liên quan. Ở góc dưới có một dòng nhỏ: "hành trình nhập môn: đã mở." Bên cạnh dòng ấy là dấu chấm son nhỏ như vết mực khô trên bản khế sáng nay.
 
-Hắn dùng ngón tay chạm vào dòng ấy. Sổ đen trong áo hơi lạnh, chỉ một chút, như đã thấy nhưng không cần nói thêm. Lâm Thất cũng không cần nó nói. Từ lúc đôi giày chưa mang đã ghi điểm, từ lúc thuốc chưa uống đã vào sổ, từ lúc thẻ hành trình được phát trên thuyền, hắn đã hiểu một điều mà bến khe không ai đọc to.
+Hắn dùng ngón tay chạm vào dòng ấy. Sổ đen trong áo hơi lạnh, chỉ một chút, như đã thấy nhưng không cần nói thêm. Lâm Thất cũng không cần nó nói. Từ lúc đôi giày chưa mang đã ghi điểm, từ lúc thuốc chưa uống đã vào sổ, từ lúc thẻ hành trình được phát trên thuyền, hắn đã hiểu một điều mà bến khe không ai đọc to: rời thôn không làm nợ ít hơn.
 
-Rời thôn không làm nợ ít hơn.
+Chu Uyển bên cạnh vẫn giữ cây kim chưa cất, như sợ đổi ý rồi sẽ không còn kịp giúp. Lâm Thất nhận lấy sợi chỉ, xỏ qua lỗ kim ngay trên thẻ tre, buộc nó vào lớp trong tay nải thay vì treo lộ ra ngoài cổ.
 
-Con đường xa nhà vừa mở dưới mạn thuyền, và nó đã được tính vào tên hắn trước khi nước kịp khép lại.
+Việc đầu tiên hắn làm trên đường rời nhà không phải nhìn lại bến, mà là giấu tấm thẻ đã tính tiền đường đi của mình.

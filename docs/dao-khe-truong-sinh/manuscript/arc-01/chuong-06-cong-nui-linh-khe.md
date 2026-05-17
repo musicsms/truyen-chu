@@ -60,7 +60,7 @@ Không phải mọi hình phạt đều lấy mất đồ. Có khi để ngườ
 
 "Vật cũ khai báo?"
 
-"Thẻ gỗ hỏng dấu của Lâm Trường An, miếng vải áo cũ, thuốc phòng hàn đã nhận trên đường, kim chỉ đồ riêng, bánh khô do người nhà cho trước kiểm hành trang."
+"Thẻ gỗ hỏng dấu của Lâm Trường An, miếng vải áo cũ, thuốc phòng hàn đã nhận trên đường, kim chỉ đồ riêng, bánh khô do lý trưởng trong thôn cho trước kiểm hành trang."
 
 Hắn không nhắc sổ.
 
@@ -225,4 +225,6 @@ Từ xa, tiếng chuông nhập môn vang lên. Âm thanh trong, dài, dội qua
 
 Buổi sáng, khi vừa đến, hắn đã thấy Linh Khê Tông như một tiên cảnh bị mưa làm cũ.
 
-Đến lúc cầm thẻ nợ trong tay, hắn hiểu mình vừa bước vào một thứ khác: không phải thiên đường trên đá, mà là một cuốn sổ rất lớn, dựng thành cổng, lát thành bậc, treo tên bằng ba chữ sáng trên đầu người.
+Đến lúc cầm thẻ nợ trong tay, những đường vá, thẻ khóa và ô trống trên thẻ mới xếp lại thành cùng một hình: Linh Khê Tông giống một quyển sổ dựng bằng đá hơn là một tiên cảnh.
+
+Lâm Thất cất cả hai chiếc thẻ vào áo rồi bước theo hàng người mới; dưới chân hắn, từng bậc đá vừa khô sau mưa hiện ra như những dòng kẻ đã chừa sẵn chỗ cho tên tiếp theo.
