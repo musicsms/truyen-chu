@@ -98,7 +98,7 @@ Cọc số chín có vấn đề rõ hơn.
 
 Dấu bùn quanh chân cọc mới, màu đậm hơn. Cọc cắm sâu nhưng mép cỏ phía sau bị lật ngược, như từng bị nhổ rồi ấn lại. Lâm Thất soi đèn xuống. Trên thân cọc có dấu niêm phong tông môn, nguyên vẹn. Nếu ai dời cọc mà dấu không vỡ, hoặc người đó có cách giữ dấu, hoặc cọc trên giấy chưa từng bị dời.
 
-Hắn nhớ lời Phùng Dự, nhớ đoạn mương rỉ ngoài cọc, nhớ tên Mã Khê Tâm trong sổ cũ.
+Hắn nhớ lời Phùng Dự, nhớ đoạn mương rỉ ngoài cọc, nhớ chữ ký Mã Hành Chu và dòng mã Khê Tâm trong sổ cũ.
 
 Sổ đen trong áo yên lặng.
 
