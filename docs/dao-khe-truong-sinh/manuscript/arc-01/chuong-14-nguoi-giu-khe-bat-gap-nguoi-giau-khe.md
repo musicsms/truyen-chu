@@ -1,0 +1,263 @@
+# Chương 14: Người Giữ Khế Bắt Gặp Người Giấu Khế
+
+Chiều hôm ấy, Lâm Thất mất một cơ hội vào phòng dẫn khí chung vì ngón tay không cầm nổi bút đăng giờ.
+
+Phòng dẫn khí mỗi ngày mở ba lượt. Lượt tốt nhất sau bữa chiều, khi bụng không quá rỗng và thân thể chưa mệt đến mức ngồi là ngủ, chỉ có hai mươi chỗ. Ai đăng trước được vào trước. Lâm Thất vốn định dùng nửa điểm báo dị thường vừa nhận để mua thêm một lượt, bù lại buổi sáng thất bại. Nhưng khi hắn đặt bút lên bảng đăng, ngón trỏ bỗng đau buốt, nét mực kéo lệch khỏi ô tên.
+
+Đệ tử giữ bảng nhìn vệt mực, nhíu mày. "Viết hỏng ô, tự lau. Hết lượt."
+
+Đến khi Lâm Thất lau xong, hai mươi chỗ đã kín.
+
+Một cơ hội nhỏ mất đi không làm người ta chết. Nhưng ở ngoại môn, cơ hội nhỏ mất đi đủ làm cả ngày lệch. Hắn đứng trước bảng đã đầy tên, nhìn dòng `Dẫn Khê Quyết - phòng chung giờ Dậu` bị người khác lấp chỗ, rồi lặng lẽ cất bút.
+
+Bị chứng.
+
+Không ai lấy roi đánh hắn. Không ai ghi phạt hắn. Sổ Nợ chỉ làm tay hắn đau đúng lúc cần chính xác, để hắn hiểu chứng cứ hôm qua không miễn phí.
+
+Hắn không về phòng ngay.
+
+Từ công pháp đường đến khu Bính có một hành lang đá đi ngang kho sao khế phụ. Kho này không phải kho chính của khế phòng, chỉ lưu bản sao nhiệm vụ thường, bảng giá cũ, quy chế phụ hết hạn một năm để đệ tử đối chiếu khi khiếu nại. Tân đệ tử không được tự vào trong, nhưng được đứng ngoài đọc bản treo công khai. Phần treo ngoài hành lang thường không ai để ý, vì chữ nhỏ, bụi nhiều, lại toàn chuyện đã qua.
+
+Lâm Thất đứng ở đó hơn nửa canh giờ.
+
+Trước mặt hắn là ba bản sao liên quan đến nhiệm vụ linh điền phía đông: bản nhiệm vụ đặt bẫy sâu hiện tại, bản quy chế cắm mốc rìa linh điền năm trước, và một bản phụ lục sửa lệ niêm phong cọc sau mùa mưa. Hắn không có Sổ Nợ trong tay. Hắn cũng không dám dùng. Hắn chỉ dùng mắt, trí nhớ, và phần lề người khác ít đọc.
+
+Bản nhiệm vụ hiện tại ghi: `mốc cọc theo sổ nông vụ xác nhận`. Bản quy chế năm trước ghi: `mốc cọc theo bản đồ khế phòng lưu`. Phụ lục sửa lệ lại thêm một dòng ở lề phải: `khi hai bản lệch, bản khế phòng làm chuẩn đối với trách nhiệm đệ tử; bản nông vụ làm chuẩn đối với phân công ruộng`.
+
+Dòng ấy rất nhỏ.
+
+Nhỏ đến mức nếu người xét việc hôm qua chỉ cầm bản nhiệm vụ hiện tại, mọi trách nhiệm của nhóm Lâm Thất có thể bị đẩy theo sổ nông vụ. Nhưng nếu phụ lục kia còn hiệu lực, việc cọc số mười một lệch không chỉ là "dị thường chưa kết luận". Đối với trách nhiệm đệ tử, mốc phải theo khế phòng.
+
+Vấn đề là hắn không biết khế phòng đang lưu bản nào.
+
+Hắn lấy từ tay áo ra mảnh giấy vụn đã chép lại mấy dòng. Vì ngón tay đau, chữ hắn xấu hơn thường. Hắn đang so lề bản treo với lề bản phụ nhiệm vụ mình được đọc hôm trước thì tiếng thước đồng chạm vào cột đá vang lên sau lưng.
+
+"Ngươi đang làm gì?"
+
+Lâm Thất khép mảnh giấy lại, nhưng đã muộn.
+
+Tạ Thanh Nghi đứng cách hắn ba bước, áo xanh nhạt còn vương mùi mực mới. Sau lưng nàng không có Hà Tố, chỉ có một đệ tử khế phòng ôm hộp hồ sơ. Ánh mắt nàng rơi từ mặt hắn xuống mảnh giấy trong tay, rồi sang ba bản sao trên tường.
+
+"Đọc bản công khai," Lâm Thất đáp.
+
+"Đọc thì không cần giấu."
+
+"Chép lại vài dòng."
+
+"Chép bản công khai cũng không cần giấu, trừ khi ngươi đang đối chiếu với thứ không nên có." Nàng đưa tay. "Đưa ta xem."
+
+Lâm Thất không động ngay.
+
+Không đưa là chống kiểm. Đưa thì nàng thấy hắn đã chép dòng lề, thấy hắn khoanh chữ `khế phòng làm chuẩn`, thấy hắn so dấu mực trên bản nhiệm vụ. Mảnh giấy không có Sổ Nợ, nhưng nó chứng minh hắn đang đi quanh cửa mà Lục Hoài Chân vừa khuyên đừng đụng.
+
+Tạ Thanh Nghi nói: "Ta không hỏi lần thứ hai ở hành lang."
+
+Hắn đưa mảnh giấy.
+
+Nàng nhận, đọc nhanh. Càng đọc, lông mày càng khép lại. Không phải giận. Là kiểu người thấy hai con số trong sổ không khớp, trước hết nghĩ mình đọc thiếu chỗ nào.
+
+"Ngươi so bản nhiệm vụ với phụ lục sửa lệ niêm phong?" nàng hỏi.
+
+"Vâng."
+
+"Ai bảo ngươi phụ lục này còn hiệu lực?"
+
+"Trên bảng chưa gỡ."
+
+"Bảng ngoài kho sao có thể chậm cập nhật."
+
+"Nếu chậm cập nhật, phải có dấu hết hiệu lực."
+
+Đệ tử ôm hộp phía sau nàng khó chịu. "Ngươi nghĩ khế phòng không biết làm việc?"
+
+Lâm Thất nhìn hắn. "Đệ tử chỉ nghĩ khế không đọc được ý người treo bảng."
+
+Tạ Thanh Nghi giơ tay, chặn câu mắng sắp tới. Nàng nhìn lại bản treo. "Ngươi đứng đây bao lâu?"
+
+"Hơn nửa canh giờ."
+
+"Vì sao không vào phòng dẫn khí?"
+
+Lâm Thất khẽ co ngón tay trong tay áo. "Hết lượt."
+
+Nàng liếc qua bàn tay hắn. Vệt mực lau chưa sạch còn dính ở đốt ngón. "Tay bị sao?"
+
+"Viết lệch."
+
+"Ta hỏi tay bị sao."
+
+"Đau."
+
+"Do nhiệm vụ linh điền?"
+
+"Có thể."
+
+Tạ Thanh Nghi không truy tiếp. Nhưng ánh mắt nàng ghi lại chuyện ấy như ghi một dòng chưa đối chiếu.
+
+Nàng trả mảnh giấy cho hắn, nhưng không buông hẳn. "Lâm Thất, ngươi đang đi rất gần ranh giới tự tra hồ sơ."
+
+"Đây là bản công khai."
+
+"Bản công khai không có nghĩa ngươi có quyền dùng nó để dựng nghi vấn về người giữ sổ khi chưa có đơn, chưa có tư cách, chưa có người bảo lãnh lời trình."
+
+"Nếu không dựng nghi vấn, cọc số mười một sẽ được ghi là tân đệ tử rời mốc."
+
+"Cọc số mười một đã chuyển khế phòng đối chiếu."
+
+"Theo bản nào?"
+
+Nàng im.
+
+Đó không phải sự im lặng của người không biết. Đó là sự im lặng của người biết câu trả lời nằm sau một thủ tục chưa mở.
+
+Lâm Thất nhìn nàng. "Sư tỷ nói khế giúp người yếu có dòng để chỉ. Dòng này ở đây. Nếu khi cần chỉ lại nói chưa đủ tư cách chỉ, vậy nó giúp ai?"
+
+Đệ tử phía sau hít vào. "Ngươi..."
+
+Tạ Thanh Nghi không để hắn nói. Nàng lấy thước đồng gõ một cái xuống lòng bàn tay mình. Âm thanh nhỏ nhưng sắc. "Ngươi muốn tranh luận thì tranh luận đúng chỗ. Khế không phải cái chợ để ai thấy một dòng cũng kéo người khác ra xử. Nếu dòng nào cũng bị người mới cắt rời khỏi hệ thống, ngày mai ngoại môn chỉ còn người cãi chữ, không còn người làm việc."
+
+"Nếu hệ thống giữ dòng sai ở đúng chỗ thì sao?"
+
+"Thì phải sửa bằng đúng cách."
+
+"Đúng cách có kịp trước khi người mới bị ghi lỗi không?"
+
+Lần này nàng nhìn thẳng vào hắn. "Ngươi nghĩ ta không biết lỗi ghi vào hồ sơ tân đệ tử nặng thế nào?"
+
+"Đệ tử nghĩ sư tỷ biết. Nhưng biết và kịp là hai việc."
+
+Hành lang im xuống. Vài người đi ngang thấy Tạ Thanh Nghi đứng đó, lập tức vòng xa. Không ai muốn nghe chuyện khế phòng quá lâu.
+
+Tạ Thanh Nghi hạ giọng. "Ngươi có biết nếu ngươi tự ý giữ, sửa, chép sai hoặc truyền bản khế phụ, người bị hại không chỉ là ngươi không?"
+
+"Gia đình đệ tử?"
+
+"Gia đình ngươi, người bảo lãnh thôn, người cùng nhóm đã ký nhiệm vụ. Nếu ngươi dùng một bản lề chưa xác định hiệu lực để phủ nhận khế nhiệm vụ, bên nông vụ có thể nói ngươi xúi nhóm chối trách nhiệm. Lúc ấy hồ sơ không còn là cọc lệch. Nó thành tân đệ tử cấu kết lẩn tránh công vụ. Tống Kỳ, Chu Hòe, Chu Uyển, Đỗ San đều bị kéo vào. Nhà ai có khế bảo lãnh thì nhà ấy chịu dây."
+
+Lâm Thất nghe từng tên.
+
+Đây không phải lời dọa rỗng. Một dòng sai của hắn có thể biến người được cứu khỏi lỗi hôm qua thành người bị kéo lại hôm nay. Khế giống lưới. Chạm một mắt, những mắt khác rung theo.
+
+"Vậy sư tỷ muốn đệ tử làm gì?" hắn hỏi.
+
+"Dừng ở đây. Nếu có nghi vấn, viết đơn theo mẫu. Ta nhận đơn, đối chiếu, rồi trả lời trong thời hạn."
+
+"Thời hạn bao lâu?"
+
+"Ba đến bảy ngày."
+
+"Nếu trong ba ngày đó nhiệm vụ mới dựa trên mốc cũ tiếp tục giao?"
+
+"Nông vụ đã tạm niêm cọc số mười một."
+
+"Chỉ số mười một?"
+
+Tạ Thanh Nghi nhìn hắn.
+
+Lâm Thất chỉ lên bản phụ lục. "Dòng này không nói một cọc. Nó nói khi bản đồ khế phòng và sổ nông vụ lệch. Nếu một cọc lệch, phải kiểm tuyến. Nhưng bản nhiệm vụ hiện tại lại viết theo sổ nông vụ xác nhận. Dòng sau sửa dòng trước, hoặc ít nhất giới hạn dòng trước. Nếu không, người nhận nhiệm vụ chỉ nhìn được mốc do nông vụ cắm, nhưng khi xảy ra chuyện lại bị hỏi vì sao không theo bản đồ khế phòng chưa từng được xem."
+
+Tạ Thanh Nghi không đáp ngay.
+
+Đây là điều khoản nàng không dễ bảo vệ. Không phải vì nàng yếu lý, mà vì nó đứng ở đúng vết nứt giữa hai phòng: nông vụ cần ruộng chạy, khế phòng cần trách nhiệm rõ. Khi hai bên lệch, người ký ở dưới chịu phần mù.
+
+"Ngươi lấy bản nhiệm vụ hiện tại ở đâu?" nàng hỏi.
+
+"Bản đọc khi nhận nhiệm vụ. Đệ tử nhớ."
+
+"Nhớ từng chữ?"
+
+"Nhớ dòng khó chịu."
+
+"Lề thường được viết cho người tưởng mình đã đọc xong," nàng nói.
+
+Lâm Thất nhìn nàng. "Sư tỷ từng nói vậy."
+
+Nàng khép mắt một hơi rất ngắn, như không vui vì lời của mình bị dùng ngược lại, nhưng cũng không thể nói nó sai.
+
+Đệ tử ôm hộp lên tiếng nhỏ hơn trước: "Tạ sư tỷ, phụ lục này hình như năm ngoái sau mưa lớn mới thêm. Năm nay nông vụ gửi mẫu nhiệm vụ mới, có thể đã thay..."
+
+"Có thể không phải căn cứ." Tạ Thanh Nghi cắt ngang. "Khế không dựa vào có thể."
+
+Nàng bước đến gần bản treo, dùng thước đồng nâng mép giấy. Dưới góc phải có dấu lưu kho, mực đã hơi phai. Nàng soi rất kỹ. "Dấu hết hiệu lực không có."
+
+Đệ tử kia lập tức nói: "Có thể quên đóng."
+
+"Quên đóng cũng là một loại sự thật trên giấy." Nàng quay sang Lâm Thất. "Nhưng ngươi không được tự giữ bản sao. Không được truyền mảnh chép này cho người cùng phòng. Không được đem dòng này đi ép nông vụ. Nếu làm, ta sẽ ghi lỗi ngươi trước khi xét đúng sai."
+
+"Đệ tử hiểu."
+
+"Không. Ngươi chỉ hiểu một nửa." Giọng nàng lạnh hơn một chút. "Ta không ngăn ngươi vì muốn che sai. Ta ngăn vì một người mới cầm nửa điều khoản chạy ngoài hành lang có thể làm sai lớn hơn sai hắn thấy. Ngươi không tin ta cũng được. Nhưng ngươi phải tin rằng khế phòng có quyền làm việc này, còn ngươi hiện tại không có."
+
+"Nếu khế phòng cũng bị bản mình tin lừa?"
+
+Câu ấy buột ra thấp hơn những câu trước.
+
+Tạ Thanh Nghi nhìn hắn. "Ý ngươi là gì?"
+
+Lâm Thất không thể nói về dấu "đã vay" mình từng thấy trên khế qua Sổ Nợ. Hắn cũng không thể nói Lục Hoài Chân vừa đặt một năm hoãn nợ trước mặt mình để đổi lấy ba tháng không tra. Hắn chỉ nói phần có thể đứng được.
+
+"Bản sao có lề. Bản chính cũng có lề. Người giữ khế nếu chỉ tin dấu lưu, có thể bỏ qua chỗ người khác thay chữ trước khi lưu."
+
+Nàng không nổi giận.
+
+Sự không nổi giận ấy làm nàng càng giống người của khế phòng. Tình cảm cá nhân không được phép chạy trước giấy.
+
+"Ngươi đang nghi có người sửa bản trước khi lưu?"
+
+"Đệ tử nghi dòng trách nhiệm đang được đẩy xuống người không được xem bản đủ."
+
+"Đó là hai nghi vấn khác nhau."
+
+"Nhưng cùng hại một nhóm người."
+
+Tạ Thanh Nghi gấp mảnh giấy chép của hắn lại, trả về. "Giữ nó. Không truyền. Không thêm chữ. Nếu lát nữa ta hỏi, ngươi đưa lại đúng tờ này."
+
+"Sư tỷ định làm gì?"
+
+"Việc của khế phòng."
+
+"Đệ tử có cần viết đơn?"
+
+"Chưa." Nàng quay sang đệ tử đi cùng. "Hôm nay ta không đến kho sao. Chúng ta chưa gặp Lâm Thất ở đây."
+
+Đệ tử kia ngẩn ra. "Sư tỷ?"
+
+"Nghe rõ thì làm."
+
+Hắn cúi đầu. "Vâng."
+
+Lâm Thất cũng ngẩn một chút. Đây không phải bao che theo nghĩa mềm lòng. Tạ Thanh Nghi đang giữ cho việc này chưa thành hồ sơ, vì một khi thành hồ sơ sai cách, quyền xử lý sẽ không còn nằm trong tay nàng. Nàng không đứng cùng phía với hắn. Nàng đứng cùng phía với khả năng kiểm đúng trước khi người khác đóng dấu.
+
+"Đừng hiểu lầm," nàng nói, như đọc được phần hắn vừa nghĩ. "Nếu ngươi giấu vật cấm hoặc dùng thủ đoạn lấy bản sao, ta vẫn bắt ngươi. Nếu điều khoản ngươi chỉ ra không có hiệu lực, ta sẽ ghi ngươi tự ý suy diễn. Nếu có hiệu lực, ta sẽ sửa vì nó phải được sửa."
+
+"Đã hiểu."
+
+"Và Lâm Thất." Nàng dừng ở bậc hành lang. "Đau tay thì đến y phòng ghi nguyên nhân. Đừng để sau này người khác nói ngươi tự làm hỏng chữ ký rồi chối khế. Thân thể cũng là chứng, nhưng chứng không ghi đúng lúc thì rất dễ bị người khác viết thay."
+
+Câu ấy làm ngực hắn lạnh nhẹ.
+
+Không phải Sổ Nợ. Là sự trùng hợp quá gần với chữ bị chứng.
+
+Tạ Thanh Nghi rời hành lang, mang theo đệ tử ôm hộp. Lâm Thất đứng lại trước ba bản sao, không đọc thêm. Hắn gấp mảnh giấy, cất vào lớp áo khác với chỗ giấu sổ đen.
+
+Đêm xuống, hắn không vào được lượt dẫn khí tốt. Lượt muộn còn chỗ, nhưng lúc ngồi xuống, ngực hắn lại chặn. Khí mỏng như sợi chỉ vừa vào đã đứt. Người phụ trách phòng chung đi qua, nhìn hắn một cái, ghi vào bảng: `Dẫn khí không ổn, tự điều ba ngày.`
+
+Một dòng nhỏ.
+
+Ba ngày tự điều nghĩa là hắn không được mua lượt tốt nếu không có xác nhận y phòng. Mất thêm thời gian, mất thêm điểm, và mất lý do đẹp để nói mình đang tiến bộ.
+
+Sổ Nợ nằm im trong áo.
+
+Nó không giúp hắn tránh dòng ấy.
+
+Canh đầu đêm, trong khế phòng, Tạ Thanh Nghi mở kho lưu mà trước đây nàng vẫn tin là phần sạch nhất của công việc.
+
+Nàng không lấy hồ sơ Lâm Thất trước. Nàng lấy bản đồ mốc linh điền phía đông năm trước, bản sửa lệ niêm phong sau mùa mưa, rồi mới lấy bản nhiệm vụ đặt bẫy sâu hiện tại. Ba bản giấy đặt cạnh nhau dưới đèn, thước đồng chặn mép cho thẳng.
+
+Ở góc phải bản phụ lục, nơi lẽ ra chỉ có một dấu lưu, nàng thấy dưới lớp mực cũ còn một vết ép rất mảnh.
+
+Không phải chữ.
+
+Là dấu của một tờ khác từng được đặt lên trên khi mực chưa khô.
+
+Tạ Thanh Nghi đứng yên rất lâu trước ngăn lưu trữ mà nàng từng tin chỉ cần mở đúng khóa là giấy sẽ nói đúng sự thật.
