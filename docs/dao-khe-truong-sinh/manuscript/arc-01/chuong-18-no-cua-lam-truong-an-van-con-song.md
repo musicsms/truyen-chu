@@ -26,7 +26,7 @@ Hỏi ngay là tự đưa cổ.
 
 Sáng nay, sau khi nhận thẻ mới, hắn đi đến y phòng trước. Không phải vì đau. Vì Tạ Thanh Nghi từng nói thân thể cũng là chứng, và hắn cần một lý do hợp lệ để đi qua hành lang sau khế phòng phụ, nơi treo sổ thư cũ chờ bó lại chuyển kho.
 
-Y phòng đông người qua kỳ thử nhưng thân thể hỏng. Chu Hòe ngồi ở góc, chân đặt trên ghế thấp, mặt cau có vì thuốc đắng. Lý Mục thay băng cổ tay. Đỗ San đứng chờ lấy thuốc chống lạnh rẻ nhất. Nàng thấy Lâm Thất, đưa mắt xuống vạt áo hắn như hỏi vòng bạc còn đó không. Hắn khẽ gật đầu. Nàng không nói thêm.
+Y phòng đông người qua kỳ thử nhưng thân thể hỏng. Chu Hòe ngồi ở góc, chân đặt trên ghế thấp, mặt cau có vì thuốc đắng. Lý Mục thay băng cổ tay. Đỗ San đứng chờ lấy thuốc chống lạnh rẻ nhất. Nàng thấy Lâm Thất, đưa mắt xuống vạt áo hắn như hỏi chiếc lược còn đó không. Hắn khẽ gật đầu. Nàng không nói thêm.
 
 Y sư ghi cho Lâm Thất một dòng: `ngón tay đau tái phát sau viết khế, chưa rõ căn nguyên, cho phép tránh việc chép dài ba ngày`. Dòng này không cứu được hắn khỏi nhiệm vụ linh điền, nhưng đủ để hắn cầm phiếu qua công đường xin đổi một buổi chép quy chế sang chuyển hồ sơ nhẹ.
 

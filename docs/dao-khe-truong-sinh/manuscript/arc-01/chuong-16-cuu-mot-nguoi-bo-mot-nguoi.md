@@ -218,11 +218,11 @@ Hắn không muốn dòng đó.
 
 Nhưng nợ trên đời không phải chỉ sinh ra từ thứ người ta đòi.
 
-Khi hắn trở về khu Bính, Đỗ San đứng chờ dưới hiên, tóc vẫn còn ẩm. Trong tay nàng là chiếc vòng bạc mỏng từng suýt bị bán ở trạm dịch, nay đã được bọc trong vải. Nàng đặt nó lên bậc đá trước mặt hắn.
+Khi hắn trở về khu Bính, Đỗ San đứng chờ dưới hiên, tóc vẫn còn ẩm. Trong tay nàng là chiếc lược gỗ đào nhỏ, một răng lược đã gãy, được bọc trong mảnh vải khô. Nàng đặt nó lên bậc đá trước mặt hắn.
 
-"Ta không có điểm công để trả," nàng nói rất khẽ. "Vòng này mẹ ta cho. Ngươi giữ trước. Sau này ta chuộc."
+"Ta không có điểm công để trả," nàng nói rất khẽ. "Lược này mẹ ta cho trước ngày rời thôn. Ngươi giữ trước. Sau này ta chuộc."
 
-Lâm Thất nhìn chiếc vòng.
+Lâm Thất nhìn chiếc lược.
 
 "Ta không cứu ngươi để lấy cái này."
 
@@ -230,4 +230,4 @@ Lâm Thất nhìn chiếc vòng.
 
 Nói xong, nàng quay đi.
 
-Chiếc vòng bạc nằm trên bậc đá, sáng rất nhỏ dưới ánh đèn khu Bính. Lâm Thất không nhặt lên ngay. Hắn đứng nhìn nó một lúc lâu, rồi hiểu người được cứu cũng có thể bị buộc phải trả theo cách mà người cứu chưa từng mở miệng.
+Chiếc lược gỗ nằm trên bậc đá, không sáng dưới ánh đèn khu Bính, chỉ có chỗ răng gãy hắt ra một vệt bóng mỏng. Lâm Thất không nhặt lên ngay. Hắn đứng nhìn nó một lúc lâu, rồi hiểu người được cứu cũng có thể bị buộc phải trả theo cách mà người cứu chưa từng mở miệng.
