@@ -214,7 +214,15 @@ Lâm Thất nói: "Có người nhắc."
 
 Lâm Thất thở ra chậm. Hai điểm chưa đủ trả bao nhiêu. Nhưng sáng nay hắn đi nhận việc với thẻ chỉ biết tăng, chiều nay thẻ có dòng công đầu tiên. Dòng ấy nhỏ, nhưng hướng của nó khác.
 
-Khi ông lão lật sổ nhiệm vụ để ghi hoàn tất, một trang phía trước bị gió từ cửa thổi mở. Lâm Thất vốn không định nhìn, nhưng tên ở góc trang đập vào mắt hắn trước khi hắn kịp dời đi.
+Ông lão chưa trả thẻ ngay. Ông nhìn dòng "dị thường đá lót cũ" thêm một lần, cau mày như thấy một vết bẩn quen thuộc trên giấy sạch.
+
+"Mã quản sự còn ghi tuyến cũ?" ông hỏi.
+
+"Đệ tử chỉ nghe quản sự Mã ghi dị thường nền cũ."
+
+Ông lão kéo từ dưới sổ công ra một tập mục lục mỏng buộc dây gai, lật đến phần mương phụ phía đông. Ngón tay ông dò theo cột tuyến mương, dừng ở một ký hiệu đã phai. Ông định khép lại ngay, nhưng dây gai mắc vào góc trang phía sau, kéo lộ ra nửa mặt giấy cũ trước khi tay ông đè xuống.
+
+Lâm Thất vốn không định nhìn. Nhưng cái tên ở góc trang đã hiện ra đúng lúc ông lão cố che nó lại.
 
 `Lâm Trường An`.
 
@@ -228,7 +236,7 @@ Lâm Thất cúi đầu. "Đệ tử không cố ý."
 
 "Không cố ý cũng nhớ cho đúng: công hôm nay của ngươi nằm ở trang này, không nằm ở trang kia."
 
-Ông gấp sổ, nhưng một nét mực đã ở lại trong đầu Lâm Thất. Sổ đen trong áo vẫn im, không hiện chữ, không đòi giá. Có lẽ vì lần này không cần nó chỉ. Người sống trên giấy đôi khi tự lộ ra khi gió lật đúng trang.
+Ông gấp sổ, nhưng một nét mực đã ở lại trong đầu Lâm Thất. Sổ đen trong áo vẫn im, không hiện chữ, không đòi giá. Có lẽ vì lần này không cần nó chỉ. Người sống trên giấy đôi khi tự lộ ra khi người giữ sổ kiểm nhầm một dòng cũ.
 
 Tối đó, khi Lâm Thất đứng sau bếp đổ tro thay Phùng Dự hai khắc, tro nóng làm mắt cay đến chảy nước. Hắn không nghĩ về nửa điểm công nữa. Hắn nghĩ đến đoạn mương phía đông, đến đá lót rỗng, đến nhánh nước rỉ ngoài cọc, và đến cái tên `Mã Khê Tâm` nằm cạnh tên anh trai hắn trong một quyển sổ nhiệm vụ thấp mà lẽ ra không ai mới nhập môn cần đọc.
 

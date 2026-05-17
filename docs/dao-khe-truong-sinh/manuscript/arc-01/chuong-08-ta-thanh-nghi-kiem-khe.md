@@ -20,7 +20,7 @@ Hà Tố phụ trách nhà ở đi cùng, mặt vẫn lạnh. Nhưng khi thiếu
 
 Thiếu nữ gật đầu. "Ta biết."
 
-Hai chữ không cao giọng, nhưng làm Chu Hòe lập tức căng vai. Lâm Thất đặt bát cháo xuống bậc đá. Hắn đã nghe tên nàng trong phòng đăng ký chưa? Không. Nhưng outline từ tông môn không cần nói tên con gái chấp sự quản khế cho người mới. Phùng Dự tối qua đi ngang chỉ nhắc một câu: "Ba ngày đầu khế phòng kiểm, đừng nói dối trước Tạ Thanh Nghi. Nàng không đánh người, nhưng chữ nàng sửa thì chấp sự cũng khó gỡ."
+Hai chữ không cao giọng, nhưng làm Chu Hòe lập tức căng vai. Lâm Thất đặt bát cháo xuống bậc đá. Hắn đã nghe tên nàng trong phòng đăng ký chưa? Không. Bảng dẫn nhập của ngoại môn cũng không ghi tên con gái chấp sự quản khế cho người mới xem. Phùng Dự tối qua đi ngang chỉ nhắc một câu: "Ba ngày đầu khế phòng kiểm, đừng nói dối trước Tạ Thanh Nghi. Nàng không đánh người, nhưng chữ nàng sửa thì chấp sự cũng khó gỡ."
 
 Tạ Thanh Nghi ngồi xuống sau bàn. Nàng không bắt ai quỳ. Nàng lấy chồng giấy đầu tiên, đặt thước đồng lên mép, canh cho thẳng rồi mới mở.
 

@@ -12,7 +12,7 @@ Chữ "điểm" làm cả phòng tỉnh nhanh hơn chữ "trễ".
 
 Chu Uyển ở góc bên kia vội ôm tay nải. Vòng bạc trên cổ tay nàng bị ống áo che kín, nhưng lúc nàng cúi xuống xỏ giày, ánh bạc vẫn lóe ra một vệt nhỏ. Chu Hòe nằm gần cửa, đêm qua ngủ không yên, mắt đỏ như vừa khóc trong mơ. Hắn bật dậy quá mạnh, đầu đập vào thanh giường trên, đau đến nghiến răng nhưng không dám chửi.
 
-Lâm Thất gấp tấm áo ngoài của mình lại, cột tay nải. Đêm qua họ chưa được phát chăn chính thức, chỉ mỗi người một tấm chiếu cũ để qua đêm. Hắn tưởng đó là vì kho chưa kịp mở. Đến sáng nay, khi đệ tử cầm đèn nói "phân áo", hắn biết tấm chiếu ấy có lẽ cũng đã có dòng riêng trong sổ.
+Lâm Thất gấp tấm áo ngoài của mình lại, cột tay nải. Đêm qua họ chưa được phát chăn chính thức, chỉ mỗi người một tấm chiếu cũ để qua đêm. Người dẫn nhập từng nói sáng nay sẽ nhận quy chế, áo vải và chỗ ngủ; đến lúc đệ tử cầm đèn gọi "phân phòng, phân bếp, phân áo", Lâm Thất mới hiểu lời hứa ấy không bị quên, chỉ được đem ra ghi từng khoản. Hắn tưởng tấm chiếu cũ là vì kho chưa kịp mở. Bây giờ, hắn biết nó có lẽ cũng đã có dòng riêng trong sổ.
 
 Sân ngoại môn nằm sau dãy nhà tập thể, lát đá xám, giữa sân có một giếng nước và ba bàn dài. Trời chưa sáng, sương mỏng bám trên vai người. Đám tân đệ tử đứng thành hàng theo thẻ nợ mới phát. Trên mỗi bàn có một tấm bảng gỗ dựng nghiêng, chữ viết bằng mực đen rõ ràng: `bếp`, `kho áo`, `nhà ở`.
 
