@@ -194,7 +194,7 @@ Closing reversal: Đỗ San đặt chiếc lược gãy trước hiên khu Bính
 
 ## Chương 17: Lá Thư Hoãn Nợ Về Nhà
 
-Opening pressure: Cuối tháng ba, đợt đánh giá ngoại môn đến gần, ai đủ điểm sẽ được xác nhận sống qua kỳ thử, ai thiếu điểm bị đẩy vào hợp đồng lao dịch dài hạn. Lâm Thất vừa đủ điểm nhưng đang gánh khoản thuốc cho Chu và phí phát sinh từ nhiệm vụ hao hụt. Nếu không xử lý khéo, hắn sống qua ba tháng mà nhà vẫn bị siết nợ.
+Opening pressure: Cuối tháng ba, đợt đánh giá ngoại môn đến gần, ai đủ điểm sẽ được xác nhận sống qua kỳ thử, ai thiếu điểm bị đẩy vào hợp đồng lao dịch dài hạn. Lâm Thất vừa đủ điểm nhưng đã mất phần thưởng nhiệm vụ hao hụt, phải mua thuốc chống lạnh sau cơn mưa, và còn giữ chiếc lược gãy Đỗ San để lại như một vật nợ không mong muốn. Nếu không xử lý khéo, hắn sống qua ba tháng mà nhà vẫn bị siết nợ.
 
 Main event: Lâm Thất dùng toàn bộ thông tin thu được để viết một bản trình xin hoãn nợ gia đình theo đúng điều khoản "có đóng góp phát hiện dị thường linh điền". Tạ Thanh Nghi sửa giúp hắn phần câu chữ cho hợp quy, nhưng giữ lập trường: nàng chỉ giúp điều khoản đúng được nhìn thấy, không giúp hắn bịa công. Lục Hoài Chân phê cho hoãn nợ sáu tháng, ít hơn lời ám chỉ một năm, kèm lời khen hắn biết đặt nhà trước lòng hiếu kỳ.
 
