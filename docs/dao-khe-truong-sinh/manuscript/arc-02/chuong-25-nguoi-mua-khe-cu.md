@@ -1,0 +1,187 @@
+# Chương 25: Người Mua Khế Cũ
+
+Lâm Thất không thể gửi thư hỏi thẳng cha.
+
+Từ ngày khế hoãn nợ về thôn, thư nhà họ Lâm đều đi qua dấu phụ khế phòng. Nếu hắn viết "ai hỏi mua khế cũ của Trường An", người đọc thư trên núi sẽ biết ngay hắn đang lần theo thứ không nên lần. Nếu hắn viết vòng, cha hắn chưa chắc hiểu. Nếu không viết, người lạ dưới thôn có thể quay lại trước khi hắn kịp biết tên.
+
+Ba cách đều xấu.
+
+Hắn chọn cách ít xấu nhất: tìm đường thư.
+
+Đường thư ngoại môn do phòng tạp dịch và kho ghi sổ cùng quản. Người phát thư nhận túi từ trạm dưới núi, khế phòng chỉ kiểm những thư có dấu liên quan khế, còn các thư thường được ghi số rồi phát. Muốn biết phong thư nhà hắn bị mở ở đâu, phải xem sổ nhận, sổ chuyển, và tên người cầm túi trong ngày thư đến.
+
+Lâm Thất không có quyền xem.
+
+Chu Uyển có một phần quyền.
+
+Khi hắn tìm nàng ở kho tạp dịch, Chu Uyển đang cân gạo linh hỏng cho bếp ngoài. Nàng nghe hắn nói xong, tay vẫn không dừng cân.
+
+"Ngươi muốn ta tra đường thư của nhà ngươi?"
+
+"Muốn biết thư bị giữ ở trạm nào."
+
+"Đó là hồ sơ kho."
+
+"Ta biết."
+
+"Biết mà vẫn hỏi?"
+
+"Ừ."
+
+Chu Uyển đặt quả cân xuống. "Ta còn nợ ngươi vụ ghi sổ mưa, nhưng nợ ấy không đủ mua việc này."
+
+Lâm Thất không phản bác. Nàng nói đúng. Một lần giúp nhỏ không thể đổi lấy nguy cơ bị kho tạp dịch ghi lỗi xem sổ. Ở Linh Khê, tình nghĩa không được gọi tên dễ biến thành món nợ bị kéo dài vô tận. Chu Uyển ghét điều đó, và hắn tôn trọng.
+
+"Ngươi muốn gì?"
+
+"Một lời hứa."
+
+"Nói."
+
+"Không kéo Chu Hòe vào chuyện của ngươi." Giọng nàng thấp hơn. "Nó ngu, nóng, thích khoe, nhưng nó là em ta. Nếu ngươi cần người làm mồi hoặc truyền lời, tìm người khác."
+
+Lâm Thất đáp ngay: "Được."
+
+"Không phải chỉ lần này."
+
+"Trước khi chuyện liên quan trực tiếp đến nó, ta không dùng tên nó, không nhờ nó, không để nó giữ đồ."
+
+Chu Uyển nhìn hắn rất lâu, như cân xem câu ấy có lỗ nào không. Cuối cùng nàng gật đầu. "Được. Tối nay ta trực kho thư tạp. Ngươi không được vào. Ta chỉ nói những gì ta đọc được."
+
+"Ta sẽ trả điểm."
+
+"Không cần. Lời hứa đủ rồi." Nàng cầm lại quả cân. "Đi đi. Đứng lâu người khác nhìn."
+
+Lâm Thất rời kho, trong lòng không nhẹ hơn. Lời hứa cũng là khế, chỉ khác không có giấy. Không có giấy đôi khi nặng hơn, vì người giữ nó là mặt người quen.
+
+Đêm đó, Chu Uyển đến sau bếp muộn hơn hẹn.
+
+Áo nàng có mùi bụi giấy và dầu đèn. Nàng không ngồi, chỉ đặt một mảnh tre mỏng lên bàn.
+
+"Thư nhà ngươi từ trạm Sơn Hạ lên. Bị mở ở trạm đó một lần, lên khế phòng mở thêm lần nữa. Người cầm túi từ trạm Sơn Hạ là một thương tu họ Vạn, không phải người tông môn."
+
+"Thương tu được cầm túi thư?"
+
+"Được nếu hắn ký khế vận chuyển và đặt tiền thế chân. Trạm dưới núi thiếu người, thương tu đi tuyến phàm thôn thường nhận thêm việc."
+
+Lâm Thất cầm mảnh tre. Trên đó có ba chữ: `Vạn Kim Lộ`.
+
+Tên nghe như tự đặt cho hợp nghề.
+
+Chu Uyển nói tiếp: "Ta hỏi vòng qua người ở bếp. Vạn Kim Lộ chuyên mua khế công pháp hỏng, khế lao dịch hết hạn, khế phàm thân không người nhận. Hắn gom rồi bán lại quyền dùng cho các xưởng dưới núi."
+
+"Khế cũ của người chết cũng mua?"
+
+"Mua. Khế chết nếu còn tài sản phụ thì bán tài sản phụ. Khế hỏng nếu còn điều khoản lao dịch thì bán lao dịch. Khế công pháp nếu người ký từng thuộc tông môn, có thể đổi lấy quyền thuê thân nhân trả bù một phần."
+
+Lâm Thất đặt tay lên mảnh tre.
+
+Một khế cũ không nằm yên trong hòm. Nó có thể bị mua, bị cắt, bị đổi mục đích, bị biến thành dây kéo người sống. Nếu cha hắn bán khế cũ của Lâm Trường An, người mua không chỉ lấy một tờ giấy. Hắn có thể lấy quyền động vào những gì gắn với tên anh hắn, thậm chí gắn ngược về nhà họ Lâm.
+
+"Cha ta chưa bán."
+
+"Vậy viết thư bảo đừng bán."
+
+"Thư bị đọc."
+
+Chu Uyển nghĩ một lát. "Viết bằng việc nhà. Ví dụ: đồ cũ của anh cả để trong hòm, đừng bán cho người qua đường. Khế phòng đọc được cũng chỉ thấy chuyện nhà."
+
+"Nếu họ hiểu?"
+
+"Họ đã hiểu thì ngươi viết hay không cũng vậy."
+
+Lâm Thất thấy nàng nói chuyện càng ngày càng giống người sống lâu trong tông môn: không tìm đường sạch, chỉ tìm đường còn đi được.
+
+"Còn gì nữa không?"
+
+Chu Uyển do dự.
+
+"Có thì nói. Không nói, sau này giá đắt hơn."
+
+Nàng thở ra. "Vạn Kim Lộ từng vào nội môn giao hàng. Một lần trả phí vận chuyển không qua kho, mà qua một đệ tử nội môn họ Tạ."
+
+Lâm Thất ngẩng lên.
+
+"Tên?"
+
+"Sổ chỉ ghi họ. Chữ tên bị mực đè. Ta không dám cạo."
+
+Họ Tạ.
+
+Trên núi không chỉ có một người họ Tạ. Tạ Thanh Nghi có cha làm chấp sự khế phòng, họ hàng ở nội môn, gia tộc sống bằng quản khế nhiều đời. Một dòng họ như vậy sạch hay không sạch không thể kết luận bằng một chữ họ. Nhưng một chữ họ cũng đủ khiến câu hỏi trở nên nguy hiểm hơn.
+
+"Ngươi đã nói với ai chưa?" Lâm Thất hỏi.
+
+"Ta đâu có ngu."
+
+"Sau này nếu ai hỏi vì sao xem sổ?"
+
+"Ta không xem. Ta kiểm túi thư thiếu dấu." Chu Uyển cười nhạt. "Ta cũng biết tự cứu mình."
+
+Nàng nói xong, lấy từ tay áo ra một mẩu dây gai nhỏ.
+
+"Còn cái này buộc trên túi thư hôm đó. Dây của trạm Sơn Hạ thường nhuộm nâu. Sợi này có mùi dầu thông và bột kim ngân. Thương tu hay dùng để chống ẩm cho khế da."
+
+Lâm Thất nhận sợi dây. Dầu thông đã nhạt, nhưng mùi kim ngân vẫn còn, lạnh và ngọt. Mùi ấy không thuộc thư nhà hắn. Nó thuộc loại giấy cứng dùng để giữ khế lâu ngày khỏi mốc.
+
+"Túi thư mang cả khế?"
+
+"Có thể. Hoặc người cầm túi quen buộc khế bằng dây này." Chu Uyển hạ giọng. "Ta hỏi người phát thư. Hắn nói Vạn Kim Lộ không đi một mình. Có một người hầu mang hòm da đen, trên hòm dán phù giữ ẩm. Khi tới trạm, Vạn hỏi đường về thôn của ngươi trước khi giao túi lên núi."
+
+Lâm Thất siết mẩu dây.
+
+"Hỏi thôn ta?"
+
+"Hỏi tên Lâm gia ở cuối ruộng bắc. Người phát thư tưởng hắn là họ hàng."
+
+Đến đây thì chuyện không còn là một thương tu tình cờ mở thư. Vạn Kim Lộ đã biết nhà. Biết vị trí. Biết đủ để người dưới thôn nghĩ hắn đến vì việc riêng chứ không phải qua đường. Một người buôn khế không cần biết sân nhà ai nằm cuối ruộng bắc, trừ khi hắn định đặt chân tới đó.
+
+Chu Uyển nhìn tay hắn. "Đừng bóp nát. Dây ấy không làm gì ngươi."
+
+Lâm Thất buông lỏng.
+
+Hắn vừa muốn chạy xuống núi, vừa biết mình không thể. Ngoại môn chính thức ra khỏi tông phải có lệnh. Khế hoãn nợ nhà hắn còn treo. Nhiệm vụ mùa sau vừa ký. Một bước nóng vội ở đây có thể khiến cha mẹ dưới thôn bị gọi là nhà có con trốn nghĩa vụ.
+
+Đó là cái khó chịu nhất của khế: nó không cần nhốt chân người bằng cửa sắt. Nó buộc người ta tự đứng yên bằng những người mình muốn bảo vệ.
+
+Lâm Thất gật đầu. "Ta nợ ngươi."
+
+"Ngươi đã hứa rồi."
+
+"Lời hứa là một phần. Phần còn lại, ta sẽ không để tên ngươi xuất hiện trong chuyện này."
+
+Chu Uyển nhìn hắn, lần đầu trong tối ấy ánh mắt dịu xuống một chút. "Nhớ kỹ."
+
+Nàng đi rồi, Lâm Thất viết thư cho cha.
+
+Hắn viết mẹ nên giữ ấm, ruộng sau nhà đừng vội cho người ngoài thuê, hòm đồ cũ của anh cả tuyệt đối không bán cho người qua đường, dù người đó nói đồ chết để trong nhà không tốt. Hắn viết thêm rằng sáu tháng này nhà cứ chịu điều tiếng, đừng vì muốn yên tai mà ký thêm giấy nào.
+
+Viết xong, hắn đọc lại ba lần, cắt bỏ mọi chữ có thể bị hiểu là điều tra.
+
+Nhưng gửi thư cũng cần trả giá.
+
+Thư khẩn xuống núi tốn hai điểm công. Thư thường có thể đi chậm mười ngày. Mười ngày đủ để Vạn Kim Lộ quay lại thôn, uống chén nước trong nhà hắn, nói với cha hắn rằng giữ khế người chết sẽ làm người sống bị gọi nợ. Lâm Thất lấy thẻ điểm ra, nhìn số điểm mỏng như lớp cháo loãng cuối nồi.
+
+Hai điểm công là nửa ngày linh điền. Là một phần thuốc cân mạch nếu cổ tay hắn lại lạnh. Là một phần trả khế hoãn sáu tháng.
+
+Hắn vẫn đóng dấu thư khẩn.
+
+Người nhận thư ở trạm ngoại môn nhìn hắn. "Thư nhà nữa? Khế phòng sẽ đọc."
+
+"Đọc thì đọc."
+
+"Thư khẩn không hoàn điểm nếu bị giữ."
+
+"Ta biết."
+
+Dấu đỏ đóng xuống phong thư. Hai điểm công bị trừ khỏi thẻ, nhanh đến mức giống như chưa từng thuộc về hắn. Lâm Thất cất thẻ đi, cổ họng khô, nhưng lòng lại yên hơn một chút. Có những điểm công giữ trong thẻ cũng chỉ là chờ bị dùng; đổi nó lấy một câu dặn cha đừng bán khế cũ, ít nhất hắn biết mình đã mua đúng thứ cần mua hôm nay.
+
+Sổ Nợ mở ra cạnh nghiên mực.
+
+```text
+Người mua khế cũ không mua quá khứ. Hắn mua quyền gọi quá khứ thành nợ hiện tại.
+```
+
+Lâm Thất chờ dòng chữ tan hết mới gấp thư.
+
+Trước đây hắn sợ người ta tìm thấy anh mình đã chết. Bây giờ hắn bắt đầu sợ một việc khác: có người biết Lâm Trường An còn giá, nên mới vội vàng đi mua phần giấy tờ cuối cùng còn nằm trong tay nhà họ Lâm.
