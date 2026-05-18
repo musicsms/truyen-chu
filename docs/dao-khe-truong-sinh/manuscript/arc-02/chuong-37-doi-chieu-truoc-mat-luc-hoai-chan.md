@@ -1,0 +1,182 @@
+# Chương 37: Đối Chiếu Trước Mặt Lục Hoài Chân
+
+Ba ngày sau, Lâm Thất ngồi trước Lục Hoài Chân với cổ tay trái lạnh như cầm một mảnh suối.
+
+Phòng đối chiếu nằm trong khế phòng nội đường, không lớn, nhưng mỗi chỗ ngồi đều tính sẵn cao thấp. Lục Hoài Chân ngồi ở chính giữa. Tạ Viễn Chương ngồi bên trái, trước mặt là sổ khế. Phùng y sư ngồi bên phải, trước mặt là phiếu theo dõi. Tạ Thanh Nghi được phép dự thính nhưng không được cầm bút, chỗ ngồi ở phía sau cha nàng nửa bước.
+
+Lâm Thất ngồi đối diện tất cả.
+
+Trên bàn có năm hồ sơ cùng đoạn số lưu.
+
+`Bính 47`: khế hoãn nợ nhà Lâm.
+
+`Bính 48`: phụ lục nhiệm vụ dưới suối.
+
+`Bính 49`: một hồ sơ bị che tên, ghi `chuyển mục đích công pháp`.
+
+`Bính 50`: ghi chú tương thích Dẫn Khê.
+
+`Bính 51`: phiếu theo dõi dưỡng mạch của Lâm Thất.
+
+Tên ở Bính 49 bị dán phù che, nhưng Lâm Thất không cần nhìn tên để biết tại sao nó nằm giữa chuỗi này.
+
+Lục Hoài Chân mở lời: "Đối chiếu hôm nay không phải xét tội. Chỉ xác nhận hồ sơ có vận hành đúng quy chế hay không."
+
+Một câu đặt khung rất đẹp.
+
+Nếu không xét tội, mọi điều sai sẽ dễ thành sai sót. Nếu chỉ xác nhận quy chế, mọi điều ác hợp lệ sẽ được lau sạch bằng đúng chữ.
+
+Lâm Thất cúi đầu. "Đệ tử hiểu."
+
+"Vậy bắt đầu từ khế hoãn nợ." Lục Hoài Chân nhìn Tạ Viễn Chương.
+
+Tạ Viễn Chương đọc: "Hộ Lâm thị được hoãn sáu tháng dựa trên công trạng linh điền và nghĩa vụ ngoại môn của Lâm Thất. Gần đây thân chủ bị hạn chế nhiệm vụ thường, nên kiểm tra năng lực duy trì điểm công."
+
+Lâm Thất nói: "Hạn chế nhiệm vụ thường do phiếu Bính 51."
+
+Phùng y sư mở phiếu. "Bính 51 phát sinh sau nhiệm vụ Bính 48. Triệu chứng: mạch trái lạnh sâu, có đáp mạch khi kiểm."
+
+Tạ Viễn Chương nói: "Có đáp mạch không đồng nghĩa nhiệm vụ gây bệnh. Người tu Dẫn Khê vốn dễ phản ứng với khu nước."
+
+Lâm Thất đáp: "Vậy cần xem vì sao người tu Dẫn Khê được chọn vào nhiệm vụ Bính 48."
+
+Tạ Thanh Nghi ngẩng mắt.
+
+Lục Hoài Chân mỉm cười rất nhẹ. "Đúng. Xem Bính 50."
+
+Bính 50 ghi rõ: `Lâm Thất, tương thích Dẫn Khê, bố trí phụ trợ ngoài rìa dưỡng mạch, không vào khu chính.`
+
+"Không vào khu chính," Lục Hoài Chân nói. "Tông môn đã có bảo hộ."
+
+Lâm Thất nói: "Nhưng vẫn có đáp mạch."
+
+"Đáp mạch là tư chất phụ, không hẳn là hại."
+
+"Nếu là tư chất, vì sao phiếu theo dõi hạn chế nhiệm vụ thường?"
+
+"Để tránh thân thể chưa ổn định bị tổn thương."
+
+"Vậy nhiệm vụ mạch điểm cao được ưu tiên cho người có phiếu theo dõi là bảo hộ hay sử dụng?"
+
+Trong phòng yên một nhịp.
+
+Tạ Viễn Chương đặt tay lên sổ. "Câu hỏi vượt phạm vi."
+
+Lâm Thất nhìn Lục Hoài Chân. "Nếu vượt phạm vi, xin ghi vượt phạm vi. Nếu không vượt, xin trả lời."
+
+Tạ Thanh Nghi ngồi sau, đầu ngón tay khẽ siết tay áo.
+
+Lục Hoài Chân không giận. Ông nhìn Lâm Thất như nhìn một con dao nhỏ vừa học cách tìm khe giáp. "Vừa bảo hộ, vừa sử dụng. Một tông môn không thể nuôi mọi tư chất mà không dùng. Người có hỏa linh căn đi luyện đan phải chịu hỏa độc. Người có kim linh căn đi luyện khí phải chịu kim sát. Người có Dẫn Khê tương thích mạch phụ làm nhiệm vụ mạch, về lý không sai."
+
+Lời ấy quá hợp lý.
+
+Đến Phùng y sư cũng không phản bác.
+
+Lâm Thất biết mình không thể thắng bằng cách nói "dùng người là sai". Ở tu tiên giới, mọi thứ đều dùng nhau. Người dùng linh khí, tông môn dùng người, trời đất dùng kiếp. Vấn đề không phải có dùng hay không. Vấn đề là dùng đến mức nào, có cho người bị dùng biết giá thật không, có để họ từ chối khi giá vượt chữ ban đầu không.
+
+Hắn chỉ vào Bính 49. "Vậy xin mở hồ sơ chuyển mục đích công pháp."
+
+Tạ Viễn Chương nói: "Bính 49 liên quan người khác, không mở tên."
+
+"Không cần mở tên. Chỉ cần đọc điều khoản chuyển."
+
+Lục Hoài Chân gật đầu. "Đọc."
+
+Tạ Viễn Chương mở hồ sơ, tránh phần tên. Giọng ông thấp hơn bình thường: "Người tu Dẫn Khê đạt tương thích mạch phụ, trong trường hợp được bảo hộ, có thể chuyển sang khế bảo hộ mạch thân. Thời hạn do Dưỡng Mạch Viện định."
+
+"Có điều khoản tự nguyện không?" Lâm Thất hỏi.
+
+"Có."
+
+"Đọc."
+
+Tạ Viễn Chương im một nhịp, rồi đọc: "Nếu thân chủ mất năng lực tự quyết do tổn thương mạch, người bảo hộ tông môn có quyền ký phụ lục thay."
+
+Tạ Thanh Nghi nhắm mắt lại.
+
+Đó là cái bẫy.
+
+Đầu tiên dùng nhiệm vụ khiến người có đáp mạch bị tổn thương. Sau đó phiếu theo dõi hạn chế đường thường, mở đường mạch. Khi thân thể càng gần mạch càng yếu, tông môn có thể nói người ấy mất năng lực tự quyết. Cuối cùng "bảo hộ" ký thay người được bảo hộ.
+
+Mỗi ô đều hợp lệ.
+
+Ghép lại thành một đường cưỡng ép.
+
+Lâm Thất nói: "Nếu Bính 48 dẫn tới Bính 51, Bính 51 có thể dẫn tới Bính 49, vậy khế hoãn nhà Lâm ở Bính 47 trở thành áp lực khiến đệ tử khó từ chối nhiệm vụ mạch. Đệ tử xin ghi chuỗi này có nguy cơ cưỡng ép."
+
+Một chấp sự dự thính phía sau bật thốt: "Ngươi dám..."
+
+Lục Hoài Chân giơ tay.
+
+Phòng im lại.
+
+Ông nhìn Lâm Thất. "Ngươi nói rất tốt. Nhưng ngươi thiếu một điểm. Không ai buộc ngươi xuống suối. Ngươi ký nhiệm vụ vì điểm công. Không ai buộc ngươi tu Dẫn Khê. Ngươi chọn công pháp vì ít nợ ban đầu. Không ai buộc ngươi giữ khế nhà. Ngươi xin hoãn nợ vì muốn cứu gia đình. Mỗi bước đều có lựa chọn."
+
+Lâm Thất đáp: "Mỗi bước đều có lựa chọn, nhưng lựa chọn xấu được đặt sẵn để người nghèo tự đi vào."
+
+"Vậy tông môn nên làm gì? Cho mọi đệ tử nghèo tài nguyên miễn phí? Để linh mạch cạn, linh điền chết, thôn dưới núi không còn ai bảo hộ?" Lục Hoài Chân giọng vẫn ôn hòa. "Lâm Thất, công bằng không phải không ai trả giá. Công bằng là giá được ghi rõ, và người nhận lợi phải trả phần của mình."
+
+"Nếu giá được ghi rõ, vì sao tên ở Bính 49 bị che?"
+
+Lục Hoài Chân nhìn hắn.
+
+Lần đầu tiên trong buổi đối chiếu, nụ cười của ông nhạt đi.
+
+Tạ Viễn Chương nói: "Bảo vệ thân chủ cũ."
+
+Lâm Thất nói: "Hay bảo vệ người ký thay?"
+
+Tạ Thanh Nghi đứng dậy. "Xin ghi câu hỏi."
+
+Tạ Viễn Chương quát khẽ: "Ngồi xuống."
+
+Nàng không ngồi. "Con là người phát hiện mẫu phiếu cũ, có quyền yêu cầu ghi phần nghi vấn thủ tục."
+
+"Con bị cấm tiếp xúc hồ sơ này."
+
+"Vậy xin ghi: người từng phát hiện mẫu phiếu bị cấm tiếp xúc trước buổi đối chiếu."
+
+Tạ Viễn Chương nhìn con gái, mặt tái đi vì tức hoặc vì đau. Lâm Thất không nhìn nàng, nhưng hắn biết nàng vừa bước qua một đường.
+
+Lục Hoài Chân trầm mặc một lát, rồi nói: "Ghi."
+
+Hai chữ ấy rơi xuống như nước lạnh.
+
+Biên bản ghi: chuỗi hồ sơ có nghi vấn về khả năng tạo áp lực liên tục, cần phong tồn chờ trưởng lão chưởng mạch duyệt lại.
+
+Lâm Thất nghe đến "phong tồn", trong lòng không nhẹ đi.
+
+Tạ Thanh Nghi cũng vậy. Phong tồn nghĩa là không ai dưới cấp đó được xem. Hồ sơ Lâm Trường An sẽ không bị hủy, nhưng cũng bị khóa chặt hơn. Phiếu theo dõi của Lâm Thất không chuyển danh sách chính, nhưng cũng không được gỡ. Khế nhà được giữ tạm, nhưng chỉ tạm.
+
+Lục Hoài Chân ký cuối cùng.
+
+"Ba mươi ngày," ông nói. "Trong ba mươi ngày, khế hoãn nhà Lâm giữ nguyên. Phiếu theo dõi của Lâm Thất phong tồn cùng chuỗi, không thêm nhiệm vụ mạch bắt buộc. Sau ba mươi ngày, nếu không có kết luận mới, quy chế cũ tiếp tục."
+
+Đó là thắng lợi nhỏ nhất có thể lấy.
+
+Và là cái lồng mới sạch hơn.
+
+Khi mọi người rời phòng, Lục Hoài Chân gọi Lâm Thất ở lại một nhịp.
+
+"Ngươi nghĩ mình vừa chống lại ta?"
+
+Lâm Thất đáp: "Đệ tử không biết người đứng ở đâu trong chuỗi này."
+
+"Ta đứng ở nơi tông môn còn sống."
+
+"Vậy người ở trong Bính 49 đứng ở đâu?"
+
+Lục Hoài Chân nhìn hắn rất lâu. "Nếu một ngày ngươi phải chọn giữa cứu anh mình và để ba thôn dưới núi mất nước, ngươi sẽ hiểu vì sao nhiều hồ sơ cần bị che tên."
+
+Lâm Thất không đáp.
+
+Ra khỏi nội đường, nắng chiều rơi lên sân đá. Tạ Thanh Nghi đứng ở cuối bậc, sắc mặt trắng nhưng lưng thẳng. Nàng không nói mình ổn. Hắn cũng không hỏi.
+
+Trong tay áo Lâm Thất, Sổ Nợ hiện một dòng không cần hắn mở:
+
+```text
+Hồ sơ phong tồn.
+Nợ chưa giảm, chỉ đổi khóa.
+```
+
+Lâm Thất lúc này mới hiểu, đối chiếu không mở được cửa Khê Tâm. Nó chỉ chứng minh cửa ấy được xây bằng những điều khoản không ai chịu nhận là xiềng.
