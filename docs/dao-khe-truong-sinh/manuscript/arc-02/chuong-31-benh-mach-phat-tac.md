@@ -1,0 +1,174 @@
+# Chương 31: Bệnh Mạch Phát Tác
+
+Sáng hôm sau, Lâm Thất không dẫn được một hơi khí nào vào tay trái.
+
+Hắn ngồi trong phòng tĩnh tu rẻ nhất của ngoại môn, trước mặt là nén hương tính giờ chỉ còn hơn nửa. Linh khí trong phòng vẫn chảy qua trận văn dưới sàn, mỏng nhưng đều. Nếu là trước đêm dưới suối, hắn ít nhất có thể dùng Dẫn Khê Quyết kéo một sợi khí qua khe cổ tay, chịu đau một lúc rồi giữ lại trong kinh mạch.
+
+Hôm nay, khí vừa chạm đến cổ tay trái đã tản ra.
+
+Không phải bị đẩy.
+
+Là bị nhận.
+
+Cảm giác ấy rất khó nói. Giống như tay hắn không còn hoàn toàn thuộc về hắn, mà thành một đoạn đường đã được ai đó ghi dấu, mọi thứ đi qua đều phải trình thẻ trước một cửa vô hình. Lâm Thất thử lần thứ hai. Lạnh buốt từ cổ tay bò lên khuỷu tay. Mồ hôi trên trán hắn lập tức rịn ra, nhưng lòng bàn tay trái lại khô lạnh như ngâm trong nước đá.
+
+Nén hương cháy hết.
+
+Ngoài cửa, đệ tử giữ phòng gõ một tiếng. "Hết giờ."
+
+Lâm Thất mở mắt, đứng dậy chậm hơn thường ngày. Hắn không muốn ai thấy tay trái run, nên dùng tay phải cầm thẻ phòng, tay trái giấu trong tay áo.
+
+Đệ tử giữ phòng liếc hắn. "Dẫn khí không thành?"
+
+"Hôm qua xuống khu nước, còn lạnh."
+
+"Đi y phòng đi. Để quá giờ mà ngã trong phòng, ta phải ghi."
+
+Một câu nhắc nghe như tốt bụng, nhưng chữ "ghi" khiến Lâm Thất lập tức tỉnh hơn. Ở Linh Khê Tông, nhiều khi bệnh không đáng sợ bằng cách bệnh được ghi vào hồ sơ.
+
+Hắn không đi y phòng ngay.
+
+Trước hết, hắn về phòng, khóa cửa, lấy Sổ Nợ Vô Danh ra. Mép sổ vẫn còn vệt ẩm từ đêm qua. Hắn đặt tay trái lên trang giấy trống. Rất lâu sau, chữ mới hiện ra, mảnh như mạch nước nứt qua đá:
+
+```text
+Dấu nhận đường.
+Người mang dấu: Lâm Thất.
+Đường nhận: cửa ngoài Khê Tâm.
+Nợ khởi: một lần đáp khí.
+```
+
+Lâm Thất nhìn bốn dòng ấy đến khi mắt hơi đau.
+
+Không phải bệnh.
+
+Không phải hoàn toàn không phải bệnh.
+
+Nó là dấu.
+
+Đêm qua, khi Dẫn Khê Quyết tự chạy, hắn đã cắt nó rất nhanh. Nhưng một lần đáp khí vẫn đủ để thứ dưới lòng suối biết trên đời có một thân thể phù hợp đi ngang qua cửa ngoài. Một người đi qua nơi thu nợ sống không cần ký tên. Chỉ cần hơi thở trả lời một nhịp, đường đã nhận người.
+
+Hắn lật sang trang sau, muốn xem có chữ nào về `K-T-17` không.
+
+Trang giấy trắng.
+
+Hắn không ép.
+
+Sổ cho dữ kiện, không cho hắn quyền cạy cửa từng trang. Càng ép, nợ càng sâu. Lâm Thất khép sổ lại, xoa cổ tay trái. Cái lạnh không giảm.
+
+Đến gần trưa, hắn mới tới y phòng.
+
+Y phòng ngoại môn hôm nay đông hơn thường lệ. Ba đệ tử ho khan ngồi bên trái, hai người băng chân bên phải, một người nằm trên cáng tre, sắc mặt trắng xanh. Trên tường treo bảng giá thuốc: thuốc ôn mạch một viên hai điểm công, thuốc dưỡng khí một viên ba điểm công, thuốc cân mạch một viên bảy điểm công. Dưới mỗi dòng đều có chữ nhỏ: có thể ghi nợ y phòng, lãi tính theo tuần.
+
+Lâm Thất nhìn bảng rất lâu.
+
+Người nghèo đến y phòng không phải để mua khỏe. Họ mua thêm thời gian để tiếp tục làm nhiệm vụ.
+
+Y sư trực là một nam nhân trung niên họ Phùng, tóc đã bạc ở thái dương. Ông bắt mạch Lâm Thất, đầu ngón tay dừng rất lâu ở cổ tay trái.
+
+"Xuống khu dưới suối?"
+
+"Vâng."
+
+"Tu công pháp gì?"
+
+"Dẫn Khê Quyết."
+
+Phùng y sư ngẩng lên nhìn hắn. Ánh mắt ấy không giống kinh ngạc. Giống như thấy một dòng hồ sơ cũ được lặp lại.
+
+"Dẫn khí thất bại mấy lần?"
+
+"Ba lần."
+
+"Đau ở đâu?"
+
+"Cổ tay, khuỷu tay, dưới xương sườn. Sau gáy lạnh nhưng chưa đau."
+
+Phùng y sư viết từng chữ vào phiếu. Chữ ông rất gọn, không thừa một nét. Lâm Thất nhìn đầu bút di chuyển, hỏi: "Ghi là bệnh gì?"
+
+"Cảm hàn mạch."
+
+"Nếu là cảm hàn, uống thuốc mấy ngày khỏi?"
+
+"Tùy người."
+
+"Nếu không khỏi thì sao?"
+
+Phùng y sư dừng bút. "Ngươi muốn hỏi điều gì?"
+
+Lâm Thất đặt thẻ phụ trợ đêm qua lên bàn. Trên thẻ có dòng Kỷ Thành ghi: `có phản ứng nhẹ với khu nước lạnh, lần sau bố trí xa vạch lam`.
+
+"Trong phụ lục nhiệm vụ có ghi: nếu xuất hiện triệu chứng mạch thân, y phòng phải ghi kiểm nhiệm vụ, không ghi bệnh mạch trước khi đối chiếu. Đệ tử muốn phiếu ghi đúng dòng ấy."
+
+Phùng y sư nhìn thẻ, rồi nhìn Lâm Thất. "Ai dạy ngươi hỏi vậy?"
+
+"Một người hiểu khế hơn đệ tử."
+
+"Tạ Thanh Nghi?"
+
+Lâm Thất không đáp.
+
+Không đáp cũng là đáp, nhưng không để lại chữ trong phòng.
+
+Phùng y sư khép mắt một lát. Khi mở ra, ông rút tờ phiếu vừa viết sang bên, lấy tờ mới. "Ta có thể ghi kiểm nhiệm vụ. Nhưng triệu chứng vẫn phải ghi. Ngươi muốn cứu một dòng chữ, không được giấu nửa thân thể."
+
+"Đệ tử hiểu."
+
+"Ngươi không hiểu." Giọng Phùng y sư thấp hơn. "Một khi phiếu này vào kho y phòng, nhiệm vụ thường của ngươi có thể bị hạn chế. Họ sẽ nói để bảo vệ ngươi. Sau đó mọi nhiệm vụ điểm cao ngươi nhận được đều sẽ liên quan đến mạch."
+
+Lâm Thất đã đoán được một phần, nhưng nghe chính miệng y sư nói, tay trái vẫn lạnh thêm.
+
+"Nếu không ghi thì sao?"
+
+"Nếu không ghi, lần sau ngươi xuống nước ngã lại, người chịu lỗi là ta. Nếu ta ghi cảm hàn mạch thường, người chịu giá là ngươi. Nếu ghi kiểm nhiệm vụ, giá chia ra nhiều bàn hơn, nhưng cuối cùng vẫn có người muốn đẩy nó về cổ ngươi."
+
+Phùng y sư viết xong, đóng dấu một nửa, rồi dừng. "Ngươi còn muốn ghi kiểm nhiệm vụ không?"
+
+Đó không phải câu hỏi của y sư với bệnh nhân.
+
+Đó là câu hỏi của một người từng thấy nhiều người bị hồ sơ đẩy đi, hỏi một đệ tử nghèo có chịu để tên mình bước vào đường ấy không.
+
+Lâm Thất nói: "Ghi."
+
+Không ghi thì dấu vẫn ở trên thân hắn. Chỉ là trong hồ sơ, nó sẽ thành một cơn cảm hàn rẻ tiền có thể bán thuốc. Ghi kiểm nhiệm vụ ít nhất còn buộc nhiệm vụ đêm qua đứng cùng bàn với bệnh của hắn.
+
+Con dấu hạ xuống.
+
+Mực đỏ thấm vào giấy rất nhanh.
+
+Phùng y sư đưa hắn một viên thuốc ôn mạch. "Hai điểm công."
+
+"Có thể ghi nợ không?"
+
+"Có."
+
+"Lãi?"
+
+"Một phần mười mỗi tuần."
+
+Lâm Thất lấy hai điểm công vừa được trả từ nhiệm vụ dưới suối ra đặt lên bàn. Hắn không muốn thêm một dòng lãi y phòng chỉ để cổ tay ấm thêm nửa ngày.
+
+Trước khi rời đi, hắn liếc thấy dưới chồng phiếu cũ bên mép bàn có một mẫu giấy ngả vàng. Dòng tiêu đề giống hệt phiếu của hắn, chỉ khác tên ở góc bị che bởi thước đồng. Bút tích ngày tháng đã cũ.
+
+Phùng y sư kéo thước đồng sang, che kín hơn.
+
+"Đừng nhìn thứ không phải bệnh của ngươi."
+
+Lâm Thất cúi đầu. "Vâng."
+
+Ra khỏi y phòng, Tạ Thanh Nghi đã đứng dưới mái hiên. Nàng không hỏi hắn khỏe chưa. Nàng nhìn cổ tay trái giấu trong tay áo, rồi hỏi: "Họ ghi thế nào?"
+
+Lâm Thất đưa phiếu.
+
+Nàng đọc xong, sắc mặt trầm xuống. "Mẫu này..."
+
+"Ngươi từng thấy?"
+
+"Trong kho phụ lục cũ." Tạ Thanh Nghi hạ giọng. "Mẫu từng dùng cho Lâm Trường An trước khi hồ sơ của hắn chuyển khỏi ngoại môn."
+
+Cổ tay trái của Lâm Thất đau nhói một cái, như con dấu vừa đóng không nằm trên giấy, mà đóng thẳng vào mạch.
+
+Hắn mở phiếu ra lần nữa. Dòng cuối cùng vừa khô mực:
+
+`Theo dõi dưỡng mạch trong bảy ngày, chờ đối chiếu nhiệm vụ.`
+
+Lâm Thất lúc này mới hiểu, y phòng không chỉ chữa bệnh. Nó còn quyết định một người bệnh được phép đi tiếp trên con đường nào.

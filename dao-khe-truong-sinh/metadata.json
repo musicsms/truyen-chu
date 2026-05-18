@@ -161,8 +161,23 @@
       "number": 30,
       "title": "Chương 30: Một Đêm Dưới Suối",
       "url": ""
+    },
+    {
+      "number": 31,
+      "title": "Chương 31: Bệnh Mạch Phát Tác",
+      "url": ""
+    },
+    {
+      "number": 32,
+      "title": "Chương 32: Phiếu Theo Dõi",
+      "url": ""
+    },
+    {
+      "number": 33,
+      "title": "Chương 33: Nhà Họ Tạ Gọi Con",
+      "url": ""
     }
   ],
-  "total_chapters": 30,
+  "total_chapters": 33,
   "source_url": ""
 }
