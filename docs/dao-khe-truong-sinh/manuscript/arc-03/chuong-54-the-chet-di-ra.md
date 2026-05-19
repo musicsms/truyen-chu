@@ -1,0 +1,150 @@
+# Chương 54: Thẻ Chết Đi Ra
+
+Lấy thẻ chết là phạm cấm.
+
+Lâm Thất biết điều đó trước khi tìm hộp thu hồi. Biết rõ hơn sau khi Tạ Thanh Nghi đặt trước mặt hắn ba dòng quy chế liên quan thẻ mạch.
+
+`Thẻ mạch sau khi hết nhiệm phải nhập hộp thu hồi.`
+
+`Thân thuộc, đồng môn, người không phụ trách không được giữ, đọc, đổi hoặc hủy.`
+
+`Thẻ chết chưa tất toán vẫn thuộc quyền Dưỡng Mạch Viện.`
+
+"Chưa tất toán," Lâm Thất đọc lại. "Người chết rồi còn chưa tất toán?"
+
+Tạ Thanh Nghi đáp: "Nếu người đó chết nhưng khoản nợ mạch còn được tính vào trụ, thẻ vẫn chưa chết theo hồ sơ."
+
+"Vậy thẻ chết thật là gì?"
+
+"Thẻ hết người, hết nợ, hết đường dùng."
+
+"Còn lại bao nhiêu?"
+
+Nàng nhìn hắn. "Rất ít."
+
+Đó là lý do Kỷ Thành nói đừng tin chữ chết nếu chưa biết ai trả xong.
+
+Muốn vào cửa ngoài phải có một thẻ chết đi ra. Nhưng nếu dùng nhầm thẻ chưa chết, hắn sẽ mượn đường của người còn đang trả nợ. Lâm Thất từng ghét người khác dùng người nghèo làm vật liệu. Hắn không thể vì cứu anh mà biến mình thành một bàn tay khác của cùng hệ thống.
+
+Tạ Thanh Nghi nói: "Hộp thu hồi ngoài mặt có ở kho nước phụ."
+
+"Kho đang niêm."
+
+"Niêm vì kiểm vách, không niêm phần sổ thẻ. Nếu có lệnh lau thẻ thu hồi, có thể vào."
+
+"Lệnh ở đâu?"
+
+"Mỗi năm trước mùa nước rút, kho nước phụ lau thẻ cũ một lần."
+
+"Mùa nước rút?"
+
+"Ba đêm nữa."
+
+Lâm Thất nhìn nàng. "Ngươi tra từ đâu?"
+
+"Sổ vật tư công khai." Nàng dừng một chút. "Và một trang cũ không công khai lắm."
+
+"Giá?"
+
+"Cha ta sẽ biết ta vào kho phụ lục lần nữa."
+
+"Vậy dừng."
+
+"Không dừng được nữa." Tạ Thanh Nghi khép quy chế. "Ngươi cần thẻ chết. Ta cần biết cha ta giấu loại hồ sơ gì đến mức chấp nhận để Dưỡng Mạch Viện đọc thư phàm thôn."
+
+Lâm Thất không nói "ngươi không cần". Hắn đã học được rằng không ai có quyền định giá nợ của người khác.
+
+Ba ngày sau, nhiệm vụ lau thẻ thu hồi xuất hiện trên bảng rất sớm.
+
+Điểm công: một.
+
+Yêu cầu: tay sạch, không bệnh ngoài da, không tự ý đọc mã thẻ.
+
+Người nhận: hai đệ tử.
+
+Lâm Thất không thể nhận. Tên hắn dính Dẫn Khê, phiếu phong tồn, phản ứng mạch. Nếu hắn bóc nhiệm vụ này, cả bảng sẽ nhìn thấy.
+
+Chu Hòe nhận.
+
+"Không được," Lâm Thất nói ngay.
+
+Chu Hòe nhăn mặt. "Ta đọc được chữ nhỏ rồi. Không tự ý đọc mã, không bỏ thẻ vào áo, không nhúng thẻ quá ba hơi."
+
+"Ngươi không biết mình đang nhận việc gì."
+
+"Biết. Lau thẻ chết."
+
+"Chính vì vậy không được."
+
+Chu Hòe nhìn hắn, lần này không nóng nảy như trước. "Tỷ ta nói ngươi chắc chắn sẽ cản. Nàng cũng nói nếu chuyện nào cũng để ngươi và nàng làm, ta mãi mãi chỉ là đứa được giấu khỏi bảng nhiệm vụ."
+
+"Chu Uyển biết?"
+
+"Tỷ ta bảo ta chỉ lau, không đọc. Đọc là việc của ngươi. Nếu có ai hỏi vì sao ta nhận, ta nói cần một điểm trả tiền thuốc cho tỷ."
+
+Lâm Thất im lặng.
+
+Một lời nói dối hợp lý, vì Chu Uyển thật sự vừa mất nhiều đường kiếm điểm.
+
+Người thứ hai nhận nhiệm vụ là một đệ tử kho nước tên Mạnh Tề, ít nói, không quen Lâm Thất. Điều này tốt hơn là người của Dưỡng Mạch Viện tự xếp. Nhưng cũng có nghĩa Chu Hòe không thể làm gì quá lộ.
+
+Trước khi Chu Hòe vào kho, Lâm Thất đưa hắn một mảnh vải xám.
+
+"Lau qua thẻ nào lạnh hơn đá thường thì đặt bên trái. Thẻ nào ấm thì bên phải. Thẻ nào có cảm giác như có người thở, đừng chạm lần hai."
+
+Chu Hòe nuốt khan. "Thẻ chết còn thở?"
+
+"Cho nên mới phải phân biệt."
+
+"Nếu ta sợ?"
+
+"Sợ thì dừng."
+
+Chu Hòe cầm mảnh vải, gật đầu.
+
+Kho nước phụ mở trong một canh giờ. Lâm Thất không được vào. Hắn đứng ngoài rừng trúc, không vận Dẫn Khê, chỉ nghe bằng tai thường. Trong kho có tiếng nước nhỏ, tiếng thẻ gỗ chạm chậu, tiếng Mạnh Tề ho khan, tiếng Chu Hòe cố giữ hơi thở đều.
+
+Một canh giờ dài như một đêm dưới suối.
+
+Khi Chu Hòe đi ra, mặt hắn trắng hơn lúc vào. Trên tay không cầm gì.
+
+"Không lấy được," hắn nói trước.
+
+Lâm Thất chưa kịp đáp, Chu Hòe hạ giọng: "Nhưng có một thẻ tự dính vào khăn. Ta bỏ khăn vào thùng đồ bẩn như quy trình. Tối nay thùng đó chuyển ra giặt ở rãnh sau kho."
+
+Hắn không lấy thẻ.
+
+Hắn chỉ để thẻ đi theo đường đồ bẩn hợp lệ.
+
+Lâm Thất lần đầu nhìn Chu Hòe bằng ánh mắt khác. "Ai dạy ngươi?"
+
+"Không ai. Ta tự nghĩ." Chu Hòe hơi bực. "Ta đâu phải ngu mãi."
+
+Tối đó, Lâm Thất đến rãnh sau kho. Mảnh vải xám nằm trong thùng đồ bẩn, lạnh đến mức nước quanh nó đóng một lớp sương mỏng. Hắn dùng que gỗ gạt vải ra.
+
+Bên trong có một thẻ mạch nhỏ.
+
+Trên mặt thẻ ghi chữ mờ:
+
+`K-T-17 phụ.`
+
+Không phải thẻ chết.
+
+Không phải thẻ của người đã trả xong.
+
+Nó là thẻ phụ chưa thu hồi của trụ mười bảy, thứ trong sổ phụ từng ghi trạng thái lưu. Nó tự dính vào khăn Chu Hòe không phải vì hết nợ, mà vì nhận ra đường Dẫn Khê quanh Lâm Thất.
+
+Sổ Nợ trong áo mở ra:
+
+```text
+Thẻ chưa chết.
+Thẻ tìm người.
+```
+
+Lâm Thất nhìn thẻ rất lâu, cuối cùng không chạm tay trực tiếp.
+
+Muốn vào cửa ngoài phải có thẻ chết đi ra.
+
+Nhưng thứ tìm đến hắn không phải người chết mở đường.
+
+Là một phần của người sống đang cố bò ra khỏi hệ thống thẻ.

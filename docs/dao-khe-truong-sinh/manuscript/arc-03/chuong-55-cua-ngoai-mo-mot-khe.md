@@ -1,0 +1,158 @@
+# Chương 55: Cửa Ngoài Mở Một Khe
+
+Thẻ `K-T-17 phụ` chỉ có hiệu lực trong một đêm nước rút.
+
+Điều này không do Sổ Nợ nói. Tạ Thanh Nghi tìm thấy trong quy chế kho nước phụ, ở một dòng ghi nhỏ dưới lịch lau thẻ:
+
+`Thẻ phụ lưu ngoài hộp thu hồi phải nhập lại trước giờ Mão sau đêm nước rút. Quá hạn, thẻ tự mất hiệu lực, tính là hỏng.`
+
+Hỏng.
+
+Một chữ rất tiện.
+
+Nếu họ không dùng kịp, thẻ phụ của trụ mười bảy sẽ trở thành thẻ hỏng. Không chết, không sống, không dùng được, không đối chiếu được. Một phần đường bò ra khỏi hệ thống sẽ bị hệ thống gọi là lỗi vật tư.
+
+Lâm Thất đặt thẻ trong hộp gỗ nhỏ, lót vải khô. Hai ngón tay trái của hắn vừa có cảm giác trở lại, nhưng chỉ cần thẻ ở gần, đầu ngón lại tê đi.
+
+"Đêm nay," Tạ Thanh Nghi nói.
+
+"Ngươi không cần đi."
+
+"Cần." Nàng đáp rất ngắn.
+
+"Đây là phạm cấm trực tiếp."
+
+"Ngươi nghĩ từ lúc ta chép bản sao Lâm Trường An, ta còn đứng ngoài sao?"
+
+Lâm Thất không có câu phản bác tốt.
+
+Chu Uyển muốn đi cùng, nhưng bị Tạ Thanh Nghi ngăn. "Ngươi vừa ký bảo lãnh Hứa Đình. Nếu đêm nay ngươi xuất hiện ở kho nước phụ, đường thư của ngươi sẽ bị khóa hẳn."
+
+Chu Uyển cười lạnh. "Còn ngươi?"
+
+"Ta bị cha ta khóa trước rồi."
+
+"Nói nghe như chuyện tốt."
+
+"Không tốt. Nhưng đã trả giá rồi thì dùng cho đáng."
+
+Cuối cùng chỉ Lâm Thất và Tạ Thanh Nghi đi.
+
+Đêm nước rút, gió trên núi khô lạ. Rãnh nước sau linh điền lộ đáy nhiều hơn thường ngày. Rừng trúc khô không kêu lách cách nữa, như từng thân trúc đều ngậm hơi. Kho nước phụ đã tháo niêm vì nhiệm vụ lau thẻ ban sáng, nhưng cửa vẫn khóa. Tạ Thanh Nghi lấy một thẻ kiểm quy trình ra.
+
+"Thẻ này mở được?"
+
+"Mở được cửa ngoài kho, không mở được vách trong."
+
+"Đủ."
+
+Cửa đá mở nhẹ.
+
+Bên trong, ba máng đá đã được lau sạch. Vách đá trong cùng có mảng khác màu. Tiếng nước chảy ngược rõ hơn đêm trước, nhưng vì nước rút, âm thanh đứt đoạn từng lúc, như cổ họng người khô mà vẫn phải thở.
+
+Lâm Thất đặt hộp thẻ xuống trước vách.
+
+Tạ Thanh Nghi trải ba tờ giấy bên cạnh: bản quy chế thẻ phụ, bản ghi kho nước phụ, và một mảnh giấy trắng. "Nếu có chuyện, ta ghi là kiểm thẻ phụ hỏng trước giờ nhập lại."
+
+"Có ai tin không?"
+
+"Không. Nhưng có giấy để họ phải phản bác từng dòng."
+
+Lâm Thất gật đầu.
+
+Hắn mở hộp.
+
+Thẻ `K-T-17 phụ` lạnh đến mức vải lót cứng lại. Khi thẻ chạm không khí trong kho, vách đá khác màu lập tức rịn nước. Dẫn Khê Quyết trong thân hắn tự động xoay, nhưng lần này không kéo hắn xuống. Nó như nhận ra thẻ trước, hỏi đường qua thẻ thay vì qua tay hắn.
+
+"Đặt ở đâu?" Tạ Thanh Nghi hỏi.
+
+Lâm Thất nghe một lát. "Máng thứ ba."
+
+Hắn dùng que gỗ đẩy thẻ vào lòng máng. Thẻ trôi rất chậm trên một lớp nước mỏng vừa xuất hiện. Nước chảy ngược, kéo thẻ về phía vách.
+
+Vách đá rung nhẹ.
+
+Không mở thành cửa.
+
+Chỉ có một khe rất mảnh, vừa đủ để tiếng nước bên trong thoát ra.
+
+Tiếng thở lập tức tràn đến.
+
+Không phải một tiếng.
+
+Nhiều tiếng.
+
+Lâm Thất suýt lùi lại. Tạ Thanh Nghi cũng trắng mặt, nhưng nàng không rời vị trí. Nàng đặt bút lên giấy, bàn tay run rất nhẹ.
+
+"Ngươi nghe gì?"
+
+"Nhiều người."
+
+"Bao nhiêu?"
+
+"Không đếm được."
+
+Hắn vận Dẫn Khê rất nhỏ, cố giữ ba nhịp như Phùng y sư dặn, nhưng khe cửa ngoài hút khí mạnh hơn hắn tưởng. Cổ tay trái lạnh buốt, rồi hai ngón vừa hồi phục lập tức mất cảm giác. Hắn dùng kim bạc đâm.
+
+Không đau.
+
+Phải dừng.
+
+Nhưng ngay trước khi dừng, Sổ Nợ trong áo mở ra, chữ hiện nhanh đến mức như bị ai viết vội:
+
+```text
+Cửa ngoài nhận thẻ phụ.
+Phí mở khe: cảm giác hai ngón tay trái.
+```
+
+Lâm Thất cắn răng cắt khí. Hai ngón tay trái rơi xuống bên hông như không còn thuộc về hắn.
+
+Tạ Thanh Nghi lập tức giữ cổ tay hắn. "Dừng."
+
+"Chưa đủ."
+
+"Đủ rồi. Ngươi không còn cảm giác."
+
+"Ta cần nhìn."
+
+"Nghe đã đủ nguy hiểm."
+
+Lâm Thất nhìn nàng. "Nếu chỉ nghe, ta không biết anh ta có ở hàng ngoài không."
+
+Tạ Thanh Nghi im lặng một nhịp, rồi lấy từ tay áo ra một mảnh gương đồng nhỏ. "Một lần."
+
+"Ngươi chuẩn bị từ trước?"
+
+"Ta biết ngươi sẽ nói chưa đủ."
+
+Nàng đặt gương sát khe. Lâm Thất không nhìn trực tiếp vào vách, chỉ nhìn bóng gương. Trong khe tối có ánh nước xanh rất mờ. Ban đầu hắn tưởng đó là phản quang. Sau đó hắn nhận ra từng điểm xanh nằm trên một thẻ mạch.
+
+Một hàng thẻ treo trong nước.
+
+Mỗi thẻ phập phồng rất khẽ.
+
+Như đang thở.
+
+Không có mặt người. Không có thân người. Chỉ có thẻ, dây, nước, và những nhịp thở bị thay bằng ánh sáng.
+
+Tạ Thanh Nghi che miệng, không để tiếng thở gấp thoát ra.
+
+Lâm Thất tìm `K-T-17`.
+
+Không thấy.
+
+Hắn chỉ thấy các mã rời: `K-T-03`, `K-T-08`, `K-T-12`, vài thẻ đã mờ, vài thẻ sáng yếu. Hàng ngoài có nhiều người sống hơn hắn tưởng. Mỗi thẻ là một khoản nợ chưa tất toán. Mỗi nhịp sáng là một người hoặc một phần người đang bị giữ lại để Linh Khê Tông tiếp tục gọi mình là tông môn sống.
+
+Tạ Thanh Nghi kéo gương lại đúng lúc có tiếng bước chân ngoài rừng.
+
+Lâm Thất dùng que gỗ kéo thẻ phụ về. Khe đá khép lại, nhanh đến mức tiếng thở bị cắt ngang.
+
+Trong kho chỉ còn tiếng nước chảy ngược.
+
+Hai người đứng trong bóng tối, không ai nói gì.
+
+Họ đã mở được cửa ngoài một khe.
+
+Nhưng thứ sau khe không phải Lâm Trường An.
+
+Là cả một hàng người bị biến thành thẻ đang thở.
