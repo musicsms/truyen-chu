@@ -1,0 +1,85 @@
+# Chương 78: Vải Không Giữ Lạnh
+
+Kiểm nghiệm vật dẫn mạch được mở ở sân phụ khế phòng.
+
+Không phải vì vụ Chu Hòe đủ lớn để dùng sân, mà vì khế phòng muốn mọi người thấy họ không giấu vật chứng. Khi một chữ trong biên bản từng bị sửa, sự công khai cũng thành một loại thuốc tự cứu.
+
+Trên bàn đá đặt ba thứ: mảnh vải lấy từ rương Chu Hòe, một mảnh vải lau kho mới, và một viên đá đen dùng kiểm lạnh.
+
+Đá đen nhỏ bằng nắm tay trẻ con, bề mặt nhám, trong thớ đá có những đường bạc rất mảnh. Nó không phải pháp khí quý, chỉ là vật thử hơi ở kho nước. Vật từng chạm thẻ mạch lạnh đặt lên đá sẽ làm đường bạc sáng ba hơi nếu dấu thật còn trong sợi.
+
+Tôn chấp sự nói trước mặt mọi người: "Người đề xuất kiểm nghiệm nếu kết luận sai sẽ chịu lỗi vu khống vật chứng."
+
+Chu Hòe đứng sau dây, mặt căng trắng.
+
+Chu Uyển muốn nói gì đó, nhưng Lâm Thất lắc đầu rất nhẹ.
+
+"Đệ tử hiểu." Hắn bước lên.
+
+Tạ Thanh Nghi đứng bên cạnh bàn ghi, không chủ trì. Nàng chỉ đảm bảo từng câu được ghi đúng.
+
+Đệ tử giữ kho lấy mảnh vải mới, bôi một vệt mực lạnh ở mép rồi đặt lên đá đen. Đường bạc sáng một hơi, tắt.
+
+"Dấu bôi ngoài," hắn nói.
+
+Sau đó hắn dùng một thẻ mạch lạnh đã niêm an toàn áp lên giữa mảnh vải khác trong ba nhịp thở, rồi đặt sợi giữa lên đá. Đường bạc sáng một hơi, hai hơi, ba hơi mới tắt.
+
+"Dấu chạm thật."
+
+Cuối cùng đến mảnh vải trong rương Chu Hòe.
+
+Sợi mép dính vệt xanh đen đặt lên đá. Đường bạc sáng một hơi, yếu, rồi tắt.
+
+Sợi giữa đặt lên. Đá đen im lặng.
+
+Đám đệ tử ngoài sân bắt đầu xì xào.
+
+Tôn chấp sự nhìn Lâm Thất. "Nói kết luận của ngươi."
+
+Lâm Thất biết câu này nguy hiểm hơn kiểm nghiệm.
+
+Nếu nói quá chắc, hắn để lộ mình hiểu vật dẫn mạch bằng kinh nghiệm không nên có. Nếu nói quá nhẹ, Chu Hòe vẫn bị treo trong nghi vấn.
+
+"Mảnh vải này có dấu bôi ngoài ở mép," hắn nói. "Không có dấu chạm thẻ trong sợi giữa. Không đủ làm vật chứng chứng minh Chu Hòe từng giữ thẻ K-T-17 phụ."
+
+"Không đủ hay là giả?"
+
+La Bân đã đến từ lúc nào.
+
+Hắn đứng bên rìa sân, áo chấp sự phẳng phiu, mặt vẫn mang nụ cười quen. Nhưng lần này nụ cười ấy mỏng như giấy ướt.
+
+Lâm Thất nhìn hắn. "Theo kiểm nghiệm, vật này được làm để giống vật chứng."
+
+"Ngươi rất hiểu thẻ mạch lạnh."
+
+Một câu nhẹ, nhưng sân phụ lập tức yên hơn.
+
+La Bân không cần phản bác kết quả. Hắn chỉ cần khiến mọi người nhìn Lâm Thất bằng con mắt khác: một đệ tử ngoại môn vì sao biết dấu lạnh trong sợi vải giữ mấy hơi?
+
+Lâm Thất không mở Sổ Nợ. Không dẫn khí quá mức. Hắn chỉ đặt tay lên bàn đá, để Dẫn Khê Quyết chạy đúng một vòng nhỏ trong mạch, như lúc kiểm pháp công khai.
+
+"Đệ tử đang giữ khế nghe mạch tạm," hắn nói. "Khế cho phép ghi nhận phản ứng vật dẫn trong nhiệm vụ liên quan mạch. Việc biết dấu lạnh giữ ở sợi giữa là từ quy trình kiểm vật dẫn, không phải từ thẻ cấm."
+
+Tạ Thanh Nghi lập tức thêm: "Xin ghi: người đề xuất dùng quy trình công khai, có đối mẫu mới và đối mẫu chạm thật."
+
+Tôn chấp sự gật đầu cho ghi.
+
+La Bân cười. "Vậy Lâm sư đệ nên càng hiểu, vật chứng giả cũng có thể do người hiểu quy trình làm."
+
+"Đúng." Lâm Thất đáp. "Vì vậy cần hỏi ai có lý do đặt nó vào rương Chu Hòe trước buổi đối chiếu La chấp sự."
+
+Nụ cười của La Bân đứng lại.
+
+Tôn chấp sự nhìn mảnh vải. "Ghi kết luận tạm: mảnh vải không đủ chứng minh Chu Hòe giữ thẻ K-T-17 phụ, có nghi vấn dấu bôi sau. Chu Hòe tạm gỡ lỗi giấu vật chứng, vẫn chờ đối chứng lời khai nhiệm vụ."
+
+Chu Hòe thở ra như vừa được kéo khỏi nước.
+
+Chu Uyển không khóc. Nàng chỉ nhắm mắt một nhịp, rồi mở ra, nhìn La Bân bằng ánh mắt khiến hắn phải quay mặt đi.
+
+Kiểm nghiệm kết thúc, nhưng Lâm Thất biết cái giá vừa được ghi.
+
+Đệ tử ngoài sân không còn chỉ nhìn hắn như người bị ghi tên trên thẻ chết. Họ nhìn hắn như người có thể đứng trước đá đen, nói về vật dẫn mạch, và khiến khế phòng phải ghi.
+
+Đó là đường sống.
+
+Cũng là một dây giám sát mới quấn lên cổ hắn.

@@ -1,0 +1,99 @@
+# Chương 80: Danh Sách Không Dấu
+
+Danh sách bảo hộ không có mặt trên bàn.
+
+Nó được nhắc đến, được thừa nhận từng tồn tại, được ghi trong thẻ nhận tạm bằng nguồn D.M.V, nhưng vật thật đã bị hủy. Không dấu, không tên người giao, không bản sao. Trong khế phòng, một vật như vậy giống bóng người dưới nước: ai cũng thấy nó vừa lay động, nhưng không ai nắm được cổ tay.
+
+Tạ Thanh Nghi bước lên trước khi Tôn chấp sự kết luận.
+
+"Xin đưa dấu nguồn thẻ chuông phụ Bính-mười bảy vào hồ sơ."
+
+Sân phụ lại yên.
+
+Tôn chấp sự nói: "Dấu nguồn thuộc việc cấp vật bảo lãnh, không trực tiếp chứng minh danh sách bảo hộ."
+
+"Nhưng chứng minh La Bân không tự có thẻ chuông phụ để mượn quyền Dưỡng Mạch Viện."
+
+"Đã ghi La Bân nhận thẻ."
+
+"Cần ghi ai cấp."
+
+Một giọng nói khác vang lên từ cửa sân: "Ta cấp."
+
+Tạ Hoài An bước vào.
+
+Ông mặc áo chấp sự quản khế đầy đủ, thẻ chức đeo trước ngực, mặt bình thản. Đệ tử hai bên lập tức tránh đường. Tạ Thanh Nghi nhìn cha mình, không nói.
+
+Tạ Hoài An đi đến trước bàn, đặt một bản tự trình xuống.
+
+"Thẻ chuông phụ Bính-mười bảy do nhà họ Tạ cấp sai quy trình cho La Bân để xử lý nhiệm vụ bẩn cấp thấp. Ta nhận lỗi quản dấu phụ không chặt."
+
+Tạ Thanh Nghi khẽ siết tay.
+
+Nàng hiểu ngay.
+
+Nếu dấu nhà họ Tạ được đưa vào chuỗi với danh sách bảo hộ, nó có thể kéo lên câu hỏi ai cần dấu phụ che nhiệm vụ bẩn. Nhưng nếu cha nàng tự nhận lỗi cấp dấu sai quy trình, dấu ấy trở thành lỗi quản trị đã có người chịu. Chuỗi nợ bị cắt trước khi đụng tới người đưa danh sách không dấu.
+
+"Cha," nàng nói rất thấp, "đây không chỉ là sai quy trình."
+
+Tạ Hoài An không nhìn nàng. Ông nhìn Tôn chấp sự. "Dấu phụ của ta không phê danh sách bảo hộ, không phê phụ lục mạch, không phê sửa biên bản. Nó chỉ cấp vật bảo lãnh quá phạm vi. Phần ấy, ta chịu."
+
+Tôn chấp sự đọc bản tự trình, rồi đóng dấu tạm nhận.
+
+La Bân nhìn cảnh ấy, nụ cười lại hiện ra một chút.
+
+Lâm Thất biết vì sao.
+
+Một người trung tầng nhận lỗi có thể biến chuỗi nợ thành nhiều đoạn rời: La Bân phát mẫu và sửa biên bản; nhà họ Tạ cấp dấu phụ sai; Dưỡng Mạch Viện có chữ tắt không đủ chứng; y phòng từng ghi tai nạn vì thiếu kiểm sâu. Mỗi đoạn đều có người chịu một phần, nhưng người nối các đoạn lại để giết người thì vẫn đứng trong sương.
+
+Tạ Thanh Nghi bước thêm một bước. "Xin ghi bản tự trình này không phủ định nghi vấn danh sách bảo hộ."
+
+Tôn chấp sự do dự.
+
+Tạ Hoài An nói: "Ghi."
+
+Tạ Thanh Nghi nhìn ông.
+
+Ông vẫn không nhìn lại.
+
+Tôn chấp sự cho ghi câu ấy. Nhưng ngay sau đó, ông đưa tay về phía bản số nhận tạm của Bạch Dư.
+
+"Danh sách bảo hộ không có vật thật, không dấu phê, nguồn ghi tắt không xác nhận người giao. Theo quy chế vật chứng vô hiệu, phần danh sách không thể làm chứng cứ truy trách nhiệm Dưỡng Mạch Viện trong buổi đối chiếu này."
+
+Lâm Thất hỏi: "Còn thẻ nhận tạm?"
+
+"Giữ làm chứng cứ La Bân đã nhận vật không đủ dấu."
+
+"Không truy nguồn?"
+
+"Không đủ điều kiện."
+
+Tôn chấp sự lấy một chậu đồng nhỏ. Bạch Dư đặt bản sao số nhận tạm liên quan danh sách vào trong, chỉ giữ lại dòng trích đã niêm trong hồ sơ La Bân. Phần ghi nguồn D.M.V và mô tả danh sách không dấu bị xếp riêng.
+
+Tạ Thanh Nghi nói: "Nếu đốt, sau này không thể đối nguồn."
+
+"Vật chứng vô hiệu không lưu chi tiết nguồn chưa xác nhận." Tôn chấp sự đáp. "Đây là quy chế."
+
+Ngọn lửa bốc lên từ phù hỏa nhỏ.
+
+Giấy cong lại, đen mép, rồi cháy thành tro ngay trước mặt mọi người.
+
+Không ai trong sân dám nói một tiếng.
+
+La Bân bị đệ tử chấp pháp giữ hai tay. Hắn không còn thẻ phát nhiệm vụ, không còn quyền đứng sau bàn thấp. Nhưng khi bị kéo đi, hắn quay đầu nhìn Lâm Thất.
+
+"Ngươi thắng một nửa," hắn nói.
+
+Lâm Thất không đáp.
+
+Tạ Thanh Nghi đứng bất động trước chậu tro. Mặt nàng rất bình tĩnh, bình tĩnh đến mức Lâm Thất biết có thứ gì vừa gãy bên trong.
+
+Cha nàng đã nhận lỗi.
+
+La Bân bị bắt.
+
+Chuỗi giấy chết được công khai.
+
+Nhưng danh sách không dấu đã thành tro theo đúng quy chế.
+
+Người đưa tên Mạnh Tề từ Dưỡng Mạch Viện xuống vẫn không có tên.
