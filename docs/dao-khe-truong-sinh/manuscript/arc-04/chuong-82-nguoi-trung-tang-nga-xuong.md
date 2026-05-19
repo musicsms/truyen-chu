@@ -1,0 +1,94 @@
+# Chương 82: Người Trung Tầng Ngã Xuống
+
+La Bân bị xử trước ngoại môn vào sáng hôm sau.
+
+Không có pháp đài. Chỉ có sân nhiệm vụ thấp được dọn trống, bàn phát nhiệm vụ của hắn bị kéo ra giữa sân, thẻ gỗ xám treo phía trên từng cái được tháo xuống. Đám đệ tử nghèo đứng quanh sân, im lặng nhìn nơi từng phát cho họ một điểm cùng một lời thề không ghi giá thật.
+
+Tôn chấp sự đọc kết luận.
+
+La Bân phát mẫu thệ phụ vụ sai quy chế, tự ý kẹp phụ lục mạch vào nhiệm vụ thấp, sửa biên bản lời chứng sau đóng dấu, nhận thẻ chuông phụ quá phạm vi, dùng danh sách không đủ dấu, hủy vật nhận tạm không báo bổ túc, liên quan chuỗi tai nạn cũ cần điều tra tiếp.
+
+Mỗi dòng đều nặng.
+
+Nhưng không dòng nào là giết Mạnh Tề.
+
+Không dòng nào nói ba mạng đổi một chức.
+
+Không dòng nào chạm đến người đưa danh sách từ Dưỡng Mạch Viện.
+
+Hình phạt được tuyên: tước chức phát nhiệm vụ, niêm toàn bộ khế phạt đệ tử trong tay hắn để khế phòng rà lại, trừ toàn bộ điểm công tích, đưa vào lao dịch mạch phụ ba năm. Trong thời gian ấy, hắn không được giữ bút, không được phát mẫu, không được chạm hồ sơ đệ tử.
+
+Đám đông xôn xao.
+
+Ba năm lao dịch mạch phụ rất nặng với một chấp sự trung tầng.
+
+Nhưng Mạnh Tề đã chết.
+
+Ngụy Tân, Lạc Bình, Từ Giới cũng đã chết.
+
+Một hình phạt còn thở đứng trước những người không còn thở, nhìn thế nào cũng nhẹ.
+
+La Bân nghe xong không kêu oan. Hắn chỉ cười một tiếng rất khẽ.
+
+"Các ngươi tưởng lao dịch mạch phụ là phạt ta?" hắn nói. "Đó là đưa ta về chỗ ta phát giấy."
+
+Đệ tử chấp pháp kéo hắn đi.
+
+Khi đi ngang Lâm Thất, La Bân nghiêng đầu. "Ngươi biết vì sao danh sách chọn Mạnh Tề không?"
+
+Lâm Thất nhìn hắn.
+
+"Vì hắn thấy thẻ chưa chết. Còn ngươi thì sao?" La Bân cười, khóe miệng rách vì đêm qua bị niêm khẩu. "Người đưa danh sách biết ngươi sẽ tự chui vào khế nghe mạch. Không cần kéo. Chỉ cần đặt một người chết trước mặt ngươi."
+
+Đệ tử chấp pháp quát: "Im."
+
+La Bân vẫn kịp nói thêm một câu: "Ngươi nghĩ ngươi chọn cửa ngoài?"
+
+Hắn bị kéo khỏi sân.
+
+Lâm Thất đứng yên.
+
+Câu ấy không giống lời hù dọa. Nó giống một phần của danh sách đã cháy, rơi ra khỏi tro vào đúng lúc.
+
+Kỷ Thành đứng ở mép sân, nghe thấy. Hắn không lại gần, chỉ nhìn Lâm Thất một cái rồi quay đi. Tạ Thanh Nghi cũng nghe thấy. Nàng muốn nói gì, nhưng cuối cùng không nói.
+
+Có những câu nếu nói ra ngay sẽ khiến nó thành thật quá sớm.
+
+Sau buổi xử, bàn nhiệm vụ thấp được thay người. Một chấp sự mới ngồi xuống, xấp thẻ gỗ xám lại được đặt lên bàn. Đám đệ tử nghèo vẫn phải xếp hàng.
+
+Chợ im lặng chưa biến mất.
+
+Chỉ đổi người thu tiền.
+
+Lâm Thất trở về phòng, thấy một thẻ lịch mới đặt trên giường.
+
+Thẻ màu lam nhạt, dấu Dưỡng Mạch Viện còn ướt. Trên đó ghi lịch nghe mạch đầu tiên sau khi điều chỉnh khế:
+
+```text
+Giờ Tý, ba ngày sau.
+Khu cửa ngoài.
+Người dẫn: Kỷ Thành.
+Ghi phản ứng vật dẫn: bắt buộc.
+```
+
+Lâm Thất cầm thẻ lên.
+
+Không phải khu ngoài rìa.
+
+Không phải đường nghe an toàn.
+
+Đúng khu cửa ngoài.
+
+Hắn nhớ lời La Bân: không cần kéo, chỉ cần đặt một người chết trước mặt ngươi.
+
+Mạnh Tề đã chết. La Bân đã ngã. Danh sách không dấu đã cháy. Nhưng lịch nghe mạch vẫn đi đúng về phía cửa.
+
+Đêm xuống, Sổ Nợ không hiện thêm chữ.
+
+Sự im lặng lần này còn nặng hơn lời cảnh báo.
+
+Lâm Thất đặt thẻ lịch cạnh đèn, nhìn dấu Dưỡng Mạch Viện khô dần.
+
+Hắn chỉ lật được một tầng trung gian.
+
+Dưới tầng ấy, nước vẫn chảy, thẻ vẫn thở, và cánh cửa ngoài đang chờ hắn đến đúng giờ.
