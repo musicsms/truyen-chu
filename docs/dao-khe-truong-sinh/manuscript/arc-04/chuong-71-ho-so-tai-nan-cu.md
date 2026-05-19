@@ -1,0 +1,135 @@
+# Chương 71: Hồ Sơ Tai Nạn Cũ
+
+Giờ Mão, y phòng chưa mở cửa chính.
+
+Lâm Thất đi theo lối sau, nơi mùi thuốc sắc nặng hơn mùi hương sạch ngoài sảnh. Phùng y sư đứng chờ dưới mái hiên, áo ngoài chưa cài hết, mắt có quầng thâm.
+
+"Ta không mở hồ sơ chết cho ngươi." Ông nói ngay.
+
+Lâm Thất dừng bước. "Vậy hôm qua vì sao bảo ta đến?"
+
+"Vì ta sẽ cho ngươi xem thuốc sau tai nạn."
+
+Thuốc sau tai nạn là phần ít người để ý. Khi một đệ tử chết ngoài nhiệm vụ, y phòng phải ghi thuốc đã dùng để cấp cứu, thuốc rửa thi thể, thuốc ổn khí cho người cùng đội nếu có. Hồ sơ ấy không trực tiếp kết luận nguyên nhân chết, nhưng nói rất nhiều về thứ y phòng thật sự đã thấy.
+
+Phùng y sư dẫn hắn vào kho thuốc phụ. Trên bàn đã đặt ba cuộn giấy nhỏ.
+
+"Ngụy Tân, Lạc Bình, Từ Giới." Ông chỉ từng cuộn. "Ta chỉ cho đối chiếu thuốc. Không chép toàn văn."
+
+"Đủ."
+
+"Chưa đủ đâu." Phùng y sư cười khàn. "Chỉ là đủ để người muốn nhìn không thể giả vờ không thấy."
+
+Lâm Thất mở cuộn Ngụy Tân trước.
+
+Thuốc cấp cứu ghi thông khí tán, ôn phế hoàn, thanh đàm thủy. Nếu chỉ nghẹn khí trong máng dẫn, dùng như vậy không lạ. Nhưng sau đó có thêm một vị: tẩy mặc tán.
+
+"Tẩy mực?" Lâm Thất hỏi.
+
+"Dùng khi trong miệng hoặc họng dính mực khế, bùn mạch, hoặc độc sắc khó phân."
+
+"Bảng tang vụ ghi nghẹn khí do tự vào đoạn trong."
+
+"Bảng tang vụ không ghi mọi thứ y phòng dùng."
+
+Cuộn Lạc Bình cũng có tẩy mặc tán.
+
+Ngoài ra còn có hầu tức cao, thuốc giữ khí vùng cổ.
+
+Lâm Thất nhìn Phùng y sư.
+
+Ông không tránh mắt, nhưng vẻ mặt cứng lại.
+
+"Lạc Bình không chết ngay dưới cống," ông nói. "Khi đưa về, hắn còn mở mắt. Miệng đầy bùn, nhưng cổ không giống người chỉ bị nước lấp."
+
+"Giống Mạnh Tề?"
+
+"Nhẹ hơn. Hoặc khi ấy ta nghĩ là nhẹ hơn."
+
+"Ông có ghi không?"
+
+Phùng y sư im rất lâu. "Ta ghi một dòng."
+
+"Dòng nào?"
+
+"Cổ có vết khí không đều, nghi do co thắt trước khi ngạt."
+
+"Sau đó?"
+
+"Bị sửa thành tự chịu rủi ro."
+
+Lâm Thất đặt tay lên cuộn giấy, không mở tiếp. "Ai sửa?"
+
+"Y phòng tự sửa."
+
+Câu ấy nặng hơn một lời đổ tội.
+
+Phùng y sư kéo ghế ngồi xuống. "Năm đó ta chưa phải y sư chính. Người kiểm trách nhiệm nói nếu giữ chữ nghi, y phòng phải giải thích vì sao không mở kiểm sâu ngay khi người còn nóng. Ta do dự. Một canh giờ sau, thi thể lạnh. Dấu mờ. Người chết là đệ tử nhiệm vụ thấp, không thân tộc trong tông. Kết luận tai nạn nhanh hơn."
+
+Lâm Thất nhớ câu Phùng y sư từng nói bên xác Mạnh Tề.
+
+Nhanh hơn không có nghĩa đúng hơn.
+
+"Lạc Bình là bạn ông?"
+
+Phùng y sư nhìn cuộn thuốc. "Trước khi nhập tông, cùng thôn. Hắn kéo xe thuốc cho nhà ta ba năm. Khi ta vào y phòng, hắn cười nói sau này bị thương sẽ tìm ta bớt tiền."
+
+"Ông bớt được không?"
+
+"Ta bớt cho hắn một dòng nghi vấn."
+
+Trong kho thuốc phụ, tiếng nước nhỏ từ ống đồng xuống chậu nghe rất rõ.
+
+Lâm Thất không ép ông khai thêm. Hắn chuyển sang cuộn Từ Giới.
+
+Từ Giới chết vì khí nghịch khi chuyển đá lót mạch. Thuốc dùng có ổn mạch đan, hồi khí tán, và một dòng bị gạch rất mảnh. Nếu không nhìn nghiêng dưới ánh đèn, gần như không thấy.
+
+Phùng y sư tự đưa đèn lại gần.
+
+Dòng bị gạch hiện ra:
+
+```text
+Sau khi chết, thẻ nhiệm vụ đưa tới có tên đối chiếu phụ mới thêm.
+```
+
+Lâm Thất ngẩng đầu.
+
+"Ông ghi?"
+
+"Ta ghi ở mép, vì lúc ấy thẻ được đưa tới sau thi thể. Theo lệ, thẻ nhiệm vụ phải đi cùng người bị nạn, hoặc đến trước khi y phòng lập biên. Nhưng thẻ Từ Giới đến muộn."
+
+"Tên đối chiếu phụ là ai?"
+
+"Một đệ tử đã chuyển viện, ta không nhớ rõ."
+
+"Có giống vụ Mạnh Tề?"
+
+Phùng y sư gật đầu rất chậm. "Sau khi người chết, thẻ mới có thêm một người để chia trách nhiệm."
+
+Lâm Thất cảm thấy lưng lạnh.
+
+Tên hắn trên thẻ Mạnh Tề không phải thủ đoạn mới. Đó là một cách đã từng dùng: thêm người đối chiếu sau khi chết, khiến hồ sơ không còn chỉ trỏ thẳng về người phát nhiệm vụ.
+
+"Vì sao hôm nay nói?" hắn hỏi.
+
+Phùng y sư nhìn ba cuộn thuốc.
+
+"Vì Mạnh Tề còn nóng khi ta thấy dấu thề, và lần này ta đã ghi. Nếu sau khi ghi rồi vẫn im, thì Lạc Bình chết lần thứ hai."
+
+Ông lấy một mảnh giấy mới, viết thêm một dòng bằng tay mình:
+
+```text
+Ba vụ tai nạn cũ từng dùng thuốc xử lý dấu họng hoặc có thẻ nhiệm vụ đến muộn, xin đối chiếu với mẫu thệ phụ vụ hiện nghi trong án Mạnh Tề.
+```
+
+Viết xong, ông đóng dấu y phòng phụ lên góc giấy.
+
+"Cầm đi." Phùng y sư nói. "Đây không phải kết luận. Chỉ là một câu hỏi y phòng đáng lẽ phải hỏi từ trước."
+
+Lâm Thất nhận giấy.
+
+Ra khỏi y phòng, trời vừa sáng hẳn. Nắng rơi lên mép giấy, làm dấu mực còn ướt ánh lên một chút.
+
+Vụ Mạnh Tề đã không còn là một người chết bên rãnh linh điền.
+
+Nó có ba cái bóng đi phía sau, và một thẻ nhiệm vụ từng học cách mọc thêm tên người sau khi chủ nhân đã tắt thở.
