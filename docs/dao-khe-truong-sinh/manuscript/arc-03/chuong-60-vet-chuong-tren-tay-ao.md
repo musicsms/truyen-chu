@@ -1,0 +1,143 @@
+# Chương 60: Vết Chuông Trên Tay Áo
+
+Vết chuông trên tay áo Lục Hoài Chân có thể là khiêu khích.
+
+Cũng có thể là mồi bẫy.
+
+Lâm Thất không biết cái nào tệ hơn.
+
+Nếu là khiêu khích, nghĩa là Lục Hoài Chân đủ tự tin để cho hắn thấy một mảnh thật mà hắn không làm gì được. Nếu là mồi bẫy, nghĩa là mọi phản ứng tiếp theo của hắn sẽ bị đặt vào hồ sơ: nhìn thấy, nghi ngờ, dò hỏi, chạm vào chuông. Một người đang đói manh mối rất dễ cắn mồi câu.
+
+Hắn chọn không cắn ngay.
+
+Ba ngày sau, Lục Hoài Chân tự tìm đến.
+
+Ông đến y phòng ngoại môn vào giờ ít người, mang theo một hộp thuốc cũ cho Phùng y sư. Nhìn qua, đó là một trưởng lão quan tâm đệ tử bệnh. Thực tế, hộp thuốc chỉ là lý do để ông đứng trong căn phòng có mùi ôn mạch, nơi Lâm Thất đang thay thuốc tay trái.
+
+Phùng y sư nhìn thấy ông, sắc mặt không đổi. "Lục trưởng lão."
+
+"Phùng y sư vất vả."
+
+"Y phòng vốn vậy."
+
+Lục Hoài Chân đặt hộp thuốc xuống, rồi nhìn Lâm Thất. "Tay còn tê?"
+
+"Còn hai ngón."
+
+"Dẫn Khê không dễ tu."
+
+"Công pháp rẻ thường vậy."
+
+"Rẻ hay đắt phải nhìn về sau." Ông mỉm cười. "Có thứ ban đầu đắt, về sau cứu mạng. Có thứ ban đầu rẻ, về sau đòi cả người."
+
+Phùng y sư cắt ngang: "Thuốc đắp xong. Đệ tử Lâm có thể về."
+
+Lục Hoài Chân nói: "Ta muốn nói với hắn vài câu."
+
+Phùng y sư nhìn Lâm Thất.
+
+Lâm Thất đứng dậy. "Đệ tử nghe."
+
+Họ đi ra mái hiên sau y phòng. Không xa đến mức Phùng y sư không thấy, nhưng đủ xa để tiếng nói nhỏ không lọt vào phòng.
+
+Lục Hoài Chân không vòng vo: "Ngươi thấy vết chuông."
+
+"Trưởng lão để cho đệ tử thấy."
+
+"Ta muốn biết ngươi sẽ hiểu thế nào."
+
+"Đệ tử hiểu mình không nên hỏi ngay."
+
+"Rất tốt."
+
+Lâm Thất nhìn tay áo ông. Hôm nay vết chuông không lộ. "Người giữ chuông chủ?"
+
+Lục Hoài Chân bật cười rất nhẹ. "Nếu ta là người giữ chuông, ngươi hỏi câu này xong đã không còn đứng ở đây."
+
+"Vậy người không phải."
+
+"Ta không nói vậy."
+
+"Người chỉ nói nếu phải thì đệ tử không còn đứng đây."
+
+"Ngươi thích nghe khe hở trong lời người khác."
+
+"Vì lời đầy đủ thường không đến lượt đệ tử nghe."
+
+Lục Hoài Chân nhìn hắn lâu hơn. "Trụ mười bảy còn sống."
+
+Không khí quanh mái hiên như bị rút cạn.
+
+Ông không nói tên Lâm Trường An. Không cần. Trụ mười bảy đủ rồi. Một xác nhận gián tiếp, nhưng từ miệng Lục Hoài Chân, nó nặng hơn mọi dòng Sổ.
+
+Lâm Thất cúi đầu, che ánh mắt. "Đệ tử không biết trưởng lão nói trụ nào."
+
+"Biết mà vẫn giữ được mặt. Ngươi tiến bộ nhanh hơn ta nghĩ."
+
+"Trưởng lão muốn gì?"
+
+"Muốn dùng ngươi đúng chỗ."
+
+Lâm Thất ngẩng lên.
+
+Lục Hoài Chân lấy ra một tờ khế. Không phải khế hoãn nợ. Không phải khế im lặng lần trước. Tờ này dày hơn, có dấu Dưỡng Mạch Viện, khế phòng và y phòng.
+
+`Khế người nghe mạch chính thức.`
+
+Điều khoản ghi rất rõ: Lâm Thất trở thành người nghe mạch ngoại môn phụ thuộc Dưỡng Mạch Viện. Mỗi tháng được điểm công cố định, thuốc ôn mạch cấp theo hạn, khế nhà được giữ xét ưu tiên. Đổi lại, hắn phải báo cáo mọi phản ứng mạch, không tự ý truyền tin mạch, không giữ vật dẫn chưa đăng ký, không can thiệp chuông điểm danh.
+
+"Ngươi đang tự học nghe mạch," Lục Hoài Chân nói. "Tự học thì đau, nguy hiểm, dễ làm người bên dưới đau theo. Chính thức làm, có thuốc, có quy trình, có người dạy ngươi cách không giết người mình muốn cứu."
+
+Lời ấy đánh rất chuẩn.
+
+Lâm Thất biết mình chưa đủ giỏi. Mỗi lần chạm vào Lâm Trường An, anh bị siết. Nếu có người biết cách nghe mà ít đau hơn, hắn cần. Nhưng khế này biến hắn thành một phần của Dưỡng Mạch Viện. Một khi ký, mọi điều hắn nghe được sẽ có đường đi vào hồ sơ.
+
+"Nếu ký, đệ tử được biết chuông chủ ở đâu?"
+
+"Không."
+
+"Được gặp trụ mười bảy?"
+
+"Không."
+
+"Được cứu Hứa Đình?"
+
+"Không."
+
+"Vậy người cho đệ tử gì?"
+
+"Quyền sống đủ lâu để một ngày hỏi những câu đó không chết ngay."
+
+Một món hàng tốt hơn ba tháng khế nhà.
+
+Cũng đắt hơn.
+
+Lục Hoài Chân nói: "Ta không phải người giữ chuông."
+
+"Vậy người là gì?"
+
+"Người biết chuông sẽ reo khi nào."
+
+Lâm Thất nhìn ông.
+
+Đó là một lời thú nhận hay một lời đe dọa? Người biết chuông sẽ reo có thể là người canh giờ, người báo tin, người hưởng lợi, hoặc người từng nghe quá nhiều nên đoán được nhịp.
+
+Lục Hoài Chân thu tờ khế lại. "Ngày mai Dưỡng Mạch Viện sẽ gửi bản chính thức. Đọc kỹ. Thêm điều khoản nếu ngươi có gan. Nhưng nhớ, càng thêm nhiều, họ càng biết ngươi muốn giữ khe nào."
+
+Ông rời đi.
+
+Phùng y sư từ trong phòng bước ra sau khi ông đi khuất. "Ông ta cho ngươi khế gì?"
+
+"Người nghe mạch chính thức."
+
+Phùng y sư im lặng rất lâu, rồi nói: "Nếu ký, ngươi bước một chân vào nước."
+
+"Nếu không ký?"
+
+"Nước vẫn tìm đường lên."
+
+Lâm Thất nhìn tay trái còn tê.
+
+Lục Hoài Chân không phòng hắn nữa.
+
+Ông bắt đầu tính cách dùng hắn.
