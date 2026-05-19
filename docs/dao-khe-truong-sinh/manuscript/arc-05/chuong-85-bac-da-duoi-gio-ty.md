@@ -1,0 +1,117 @@
+# Chương 85: Bậc Đá Dưới Giờ Tý
+
+Bậc đá dưới giờ Tý lạnh hơn ban ngày.
+
+Lâm Thất từng xuống đường mạch, từng nghe tiếng nước giả, từng đứng trước hàng thẻ đang thở. Nhưng lần này khác. Lần trước hắn còn có thể giả mình là đệ tử phụ việc bị cuốn vào nhiệm vụ. Lần này tên hắn nằm trong lịch nghe mạch, trong bản chính, bản đối chiếu, bản nháp.
+
+Hắn không chỉ đi vào cửa.
+
+Hắn được viết vào đường đi trước khi bước xuống.
+
+Kỷ Thành đi trước nửa bước, tay cầm đèn lam. Hai đệ tử áo lam theo sau, một người giữ hộp đá đen, một người giữ khay thẻ đối mẫu. Tần Sưởng không xuống. Hắn đứng lại trên cửa viện, nói: "Ghi đúng giờ."
+
+Cửa đá khép sau lưng.
+
+Tiếng ngoại môn biến mất.
+
+Đường mạch chỉ còn tiếng nước và tiếng chân.
+
+Trạm thứ nhất vẫn là bàn kiểm hơi. Kỷ Thành đặt thẻ dẫn lên rãnh. Đèn lam trên vách sáng một vệt, rồi hiện tên bốn người đi vào. Lâm Thất nhìn kỹ: tên mình không nằm cuối như người được dẫn, mà nằm ở cột "nghe".
+
+Một chữ đủ đổi trách nhiệm.
+
+"Ghi phản ứng ban đầu," Kỷ Thành nói.
+
+Lâm Thất lấy bản nháp trắng. Tay phải cầm bút, tay trái giữ mảnh gỗ ba vạch.
+
+```text
+Trạm một. Lạnh nhẹ ở cổ tay, không đau họng, không phản ứng tên người.
+```
+
+Hắn viết chậm, từng chữ rõ.
+
+Đệ tử áo lam phía sau nhìn nét bút của hắn. Lâm Thất để mặc. Người bị nhìn lâu sẽ quen hoặc sẽ chết vì khó chịu trước khi đến nơi cần chết.
+
+Trạm thứ hai là hành lang đá có rãnh nước chạy ngược. Sau vụ La Bân, hai bên vách được dán niêm mới. Dấu Dưỡng Mạch Viện đè lên dấu khế phòng, dấu khế phòng đè lên dấu kho nước. Nhìn từ xa giống vảy cá chồng lên nhau, mỗi miếng đều nói mình hợp quy.
+
+"Niêm mới nhiều hơn trước." Lâm Thất nói.
+
+"Sau khi có người chết, giấy thường mọc nhanh hơn cỏ." Kỷ Thành đáp.
+
+"Niêm nhiều có làm đường an toàn hơn không?"
+
+"Làm người chịu trách nhiệm rõ hơn."
+
+Không phải câu trả lời cho an toàn.
+
+Họ đi qua trạm thẻ cũ. Nơi từng có hộp thẻ rơi xuống giờ được khóa bằng dây đỏ. Lâm Thất không nhìn lâu. Trong ngực hắn vẫn có ký ức về hàng thẻ thở, về tiếng "đừng gọi tên ta", về chuông chủ nằm trên mặt đất.
+
+Hắn ghi:
+
+```text
+Trạm thẻ cũ. Lạnh sau gáy một hơi. Không nghe tên. Vật dẫn khóa đỏ.
+```
+
+Kỷ Thành nhìn bản nháp, không sửa.
+
+Đến bậc xuống cuối, lối đi sạch bất thường.
+
+Không rêu. Không bụi đá. Không vết nước đọng. Ngay cả mùi mốc thường bám trên vách cũng nhạt đi, như có người vừa lau qua để xóa thứ gì đó.
+
+Lâm Thất dừng lại.
+
+"Sao?" Kỷ Thành hỏi.
+
+"Sạch quá."
+
+Đệ tử giữ hộp đá nói: "Khu cửa ngoài được quét trước lịch nghe mạch."
+
+Lâm Thất nhìn bậc đá. "Quét sạch không làm mất lạnh trong khe."
+
+Hắn ngồi xổm xuống, không chạm tay. Dưới mép bậc có một đường nước rất mỏng, bị ép lệch sang trái. Nếu chỉ có họ vừa đi đến, nước từ rãnh phải chảy đều. Đường lệch ấy giống vết chân không in hình, chỉ đẩy hơi lạnh qua một bên.
+
+Kỷ Thành nâng đèn xuống thấp.
+
+Mắt hắn trầm hơn.
+
+"Có người đi trước."
+
+Đệ tử áo lam phía sau lập tức nói: "Lịch đêm nay chỉ có nhóm này."
+
+"Vậy ghi lỗi lịch." Lâm Thất đáp.
+
+Người kia cau mày. "Chưa chắc là người."
+
+"Vậy ghi vật đi trước."
+
+Kỷ Thành nhìn Lâm Thất một cái, rồi lấy bản lam của người dẫn. Hắn viết ngắn:
+
+```text
+Trước bậc cửa ngoài phát hiện dấu hơi đi trước nhóm nghe mạch. Chưa xác nhận người hay vật.
+```
+
+Đệ tử áo lam muốn phản đối, nhưng Kỷ Thành đã đóng dấu người dẫn.
+
+Lâm Thất ghi vào bản nháp tương tự, không thêm suy đoán.
+
+Mất thêm nửa khắc, nghĩa là thời hạn nghe mạch bị trừ. Nhưng không ghi, mọi thứ phía trước có thể tính lên đầu hắn. Sau vụ Mạnh Tề, hắn đã học đủ: lỗi chưa ghi sẽ thành tội của người yếu nhất.
+
+Họ đi tiếp.
+
+Bậc cuối dẫn đến một hành lang thấp hơn, nơi tiếng nước không còn chảy ngược mà chảy vòng. Mỗi nhịp vang lên như có ai hít vào phía sau đá.
+
+Lâm Thất nắm mảnh gỗ ba vạch.
+
+Một hơi.
+
+Hai hơi.
+
+Ba hơi.
+
+Ngay khi hắn thở ra hơi thứ ba, từ phía sau cửa đá xa nhất vọng lại một tiếng thở rất khẽ.
+
+Không thuộc Kỷ Thành.
+
+Không thuộc hai đệ tử áo lam.
+
+Và không giống tiếng nước.
