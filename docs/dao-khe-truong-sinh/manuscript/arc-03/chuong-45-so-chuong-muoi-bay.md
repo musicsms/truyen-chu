@@ -1,0 +1,185 @@
+# Chương 45: Số Chuông Mười Bảy
+
+Mã `K-T-17` không còn là manh mối.
+
+Nó là một vị trí.
+
+Lâm Thất viết bốn ký tự ấy lên mặt trong hòm gỗ, bên cạnh thẻ cũ của Lâm Trường An. Trước đây, hắn nhìn thẻ như nhìn đồ vật anh trai để lại. Bây giờ hắn nhìn nó như nhìn một phần bản đồ bị bẻ khỏi người sống.
+
+`K-T`: Khê Tâm.
+
+`17`: trụ mạch mười bảy.
+
+Nhưng vị trí không cứu được người. Biết một người bị nhốt ở ngục nào không có nghĩa đã có chìa khóa. Tệ hơn, Tôn Lão Nhị đã nói: người bên trong không được gọi bằng tên. Nếu Lâm Thất tìm sai cách, chính việc xác nhận anh mình còn đáp có thể làm mạch đau hơn.
+
+Hắn cần biết thẻ.
+
+Không phải tên.
+
+Thẻ sống, thẻ chết, thẻ dự bị. Những thứ này xuất hiện ở khu dưới suối, xuất hiện trên bàn đá, xuất hiện trong hộp thu hồi. Tên có thể bị cất. Thẻ thì phải được chuyển, lau, thay, đối chiếu. Một hệ thống dù giấu người vẫn phải quản vật.
+
+Tạ Thanh Nghi nghe hắn trình bày xong, đặt bản phụ lục xuống bàn.
+
+"Ngươi muốn xem sổ thẻ mạch."
+
+"Không xem tên."
+
+"Sổ thẻ mạch chính không nằm ở khế phòng ngoại môn."
+
+"Vậy sổ phụ?"
+
+Nàng nhìn hắn. "Sổ phụ ghi thẻ ra vào kho nước, thẻ thu hồi, thẻ hỏng. Nếu chỉ dựa vào đó, không biết người. Nhưng biết số thẻ."
+
+"Đủ."
+
+"Không đủ để cứu người."
+
+"Đủ để không gọi nhầm tên."
+
+Tạ Thanh Nghi im lặng một lúc. Sau buổi đối chiếu, nàng ít khi nói "không được" ngay. Nàng đã hiểu có những việc không làm cũng là một loại ký tên. Nhưng mỗi lần nàng giúp, gia quy họ Tạ lại siết thêm một vòng.
+
+"Ta có thể xin xem sổ phụ với lý do kiểm thẻ thu hồi sai số," nàng nói. "Nhưng ngươi không được đi cùng."
+
+"Ta không cần đi."
+
+"Và nếu có dấu hiệu bẫy, ta sẽ dừng."
+
+"Được."
+
+"Không được tự dùng Sổ đọc thẻ bệnh."
+
+"Được."
+
+Nàng nhìn hắn lâu hơn. "Ngươi đồng ý nhanh quá."
+
+"Vì điều khoản đúng."
+
+Tạ Thanh Nghi nhận lấy mảnh giấy hắn vẽ ký hiệu `K-T-17`, rồi đi.
+
+Lâm Thất chờ ở sân sau khế phòng. Chờ là việc khó hơn làm. Khi làm, người ta còn có thể giả vờ mình đang điều khiển đường đi. Khi chờ, mọi thứ xảy ra ở sau cửa người khác. Hắn đếm hơi thở, nhưng không vận Dẫn Khê. Nếu tiếng chuông lại vang lúc này, hắn sợ mình sẽ đáp.
+
+Gần một canh giờ sau, Tạ Thanh Nghi trở lại.
+
+Sắc mặt nàng bình thường. Bình thường quá mức.
+
+"Có sổ phụ," nàng nói.
+
+"K-T-17?"
+
+"Có."
+
+Nàng đưa hắn một mảnh giấy nhỏ. Trên đó không có tên, chỉ có ba dòng:
+
+`K-T-17 chính: trạng thái sống, đang dùng.`
+
+`K-T-17 phụ: trạng thái lưu, chưa thu hồi.`
+
+`K-T-17 dự: trạng thái chờ, chưa kích hoạt.`
+
+Lâm Thất đọc dòng thứ nhất trước.
+
+Trạng thái sống.
+
+Đang dùng.
+
+Không phải bằng chứng đủ để công khai. Nhưng đủ để hắn không bị Sổ hay tiếng chuông lừa bằng hy vọng mơ hồ nữa. Người trong trụ mười bảy còn sống theo chính hệ thống thẻ của họ.
+
+Hắn đọc dòng thứ hai.
+
+Thẻ phụ chưa thu hồi.
+
+Đây có thể là thẻ chết hắn từng thấy, hoặc thẻ mở khe cửa ngoài. Nếu chưa thu hồi, nó còn lưu lạc ở đâu đó ngoài hàng thẻ chính.
+
+Cuối cùng, dòng thứ ba.
+
+Thẻ dự.
+
+Chưa kích hoạt.
+
+"Dự là gì?" hắn hỏi, dù đã đoán.
+
+Tạ Thanh Nghi đáp rất nhỏ: "Người hoặc thân mạch có thể thay vào khi trụ chính hụt."
+
+"Có tên người dự không?"
+
+"Sổ phụ không ghi tên. Chỉ ghi số liên kết."
+
+"Số gì?"
+
+Nàng đưa dòng thứ tư, vốn bị gấp lại:
+
+`Liên kết dự: Vị trí bệnh mạch - Canh 8.`
+
+Chuông tám.
+
+Lâm Thất nhớ Tôn Lão Nhị từng nói mình thay chuông tám.
+
+"Không phải ta," hắn nói.
+
+Tạ Thanh Nghi hiểu ngay hắn đang nghĩ gì. "Hiện tại chưa phải."
+
+Hiện tại.
+
+Hai chữ ấy không làm người ta yên tâm.
+
+Nếu trụ mười bảy có thẻ dự, hệ thống này không chờ người trong trụ chết mới tìm người. Nó luôn chuẩn bị một thân khác, một vị trí khác, một mảnh đau khác để nối vào khi cần. Lâm Thất chưa có tên không phải vì hắn an toàn, mà vì hắn vừa bị phong tồn trong chuỗi khác. Một khi chuỗi phong tồn hết hạn, ai cũng có thể viết hắn vào.
+
+"Canh 8 là Tôn Lão Nhị?" hắn hỏi.
+
+"Chưa chắc. Nhưng hắn nói từng thay chuông tám."
+
+"Vậy thẻ dự của mười bảy liên kết với vị trí từng dùng ở chuông tám."
+
+"Nghĩa là họ không chỉ thay người cùng số." Tạ Thanh Nghi gấp giấy lại. "Họ dùng vị trí như vật liệu."
+
+Lâm Thất thấy tay trái lạnh đi.
+
+Ở dưới kia, người không còn là người. Người là trụ, là chuông, là vị trí, là thẻ chính, phụ, dự. Tên bị cất không chỉ để thân thuộc không chuộc được. Tên bị cất để cả người trong hệ thống cũng quên mình đang xử lý người.
+
+"Ta cần biết ai đang bị ghi vào Canh 8," hắn nói.
+
+"Sổ phụ không cho."
+
+"Sổ bệnh mạch?"
+
+"Bị y phòng giữ."
+
+"Bảng chuyển viện?"
+
+Tạ Thanh Nghi nhìn hắn. "Tôn Lão Nhị sắp chuyển."
+
+"Hắn không phải Canh 8?"
+
+"Có thể từng là. Nhưng nếu hắn bị chuyển, có thể vị trí Canh 8 đang được thay bằng người khác."
+
+Ngay lúc ấy, Chu Uyển từ hành lang đi tới. Nàng không nên xuất hiện ở khu khế phòng giờ này. Vẻ mặt nàng đủ khiến cả Lâm Thất và Tạ Thanh Nghi cùng dừng.
+
+"Đường thư vừa có lệnh chuyển người bệnh mạch," nàng nói. "Mã nhận là Nội Viện Giáp-3."
+
+Lâm Thất hỏi: "Tên?"
+
+"Không phải Tôn Lão Nhị."
+
+"Ai?"
+
+Chu Uyển lấy ra một mảnh giấy bị vò, giọng thấp đi: "Hứa Đình."
+
+Lâm Thất khựng lại.
+
+Hứa Đình từng đưa hắn viên đá đen, từng nhắc hắn giữ đường lui, từng là một trong số ít người không bán thông tin của hắn cho điểm công. Hắn không thân với Hứa Đình như thân với Chu Uyển, nhưng ở ngoại môn, một lần không bán đứng cũng là ân.
+
+Tạ Thanh Nghi nói: "Hứa Đình bệnh mạch?"
+
+Chu Uyển lắc đầu. "Trên lệnh ghi `bảo hộ tiến cảnh sau phản ứng mạch nhẹ`."
+
+Bảo hộ.
+
+Lại là hai chữ ấy.
+
+Lâm Thất nhìn mảnh giấy trong tay mình. `K-T-17 dự: trạng thái chờ, chưa kích hoạt.`
+
+Hắn đã tưởng thẻ dự là một chiếc thẻ đang chờ người.
+
+Bây giờ hắn hiểu ngược lại.
+
+Có người đang bị chuyển đi để trở thành chiếc thẻ đó.
