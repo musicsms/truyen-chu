@@ -1,0 +1,127 @@
+# Chương 73: Kỷ Thành Bị Nghi
+
+Kỷ Thành nghe Lâm Thất nói xong, phản ứng đầu tiên là đóng cửa.
+
+Không phải đóng mạnh. Hắn chỉ đưa tay, để cánh cửa phòng trực Dưỡng Mạch Viện khép lại đúng khe, vừa đủ cắt tiếng người ngoài hành lang.
+
+"Ngươi nghi ta." Kỷ Thành nói.
+
+"Ta có lý do nghi ngươi."
+
+"Khác nhau không nhiều."
+
+"Khác ở chỗ ta còn đứng đây hỏi."
+
+Kỷ Thành nhìn hắn một lúc. Áo lam trên người hắn sạch như mọi khi, thẻ ngọc bên hông không lệch, nhưng dưới mắt có vệt mệt rất nhạt. Từ sau vụ người trong động còn sống, Dưỡng Mạch Viện không còn yên.
+
+"Nói."
+
+Lâm Thất đặt bản sao thẻ nhiệm vụ của Mạnh Tề lên bàn. "Chữ ký đối chiếu phụ giống chữ ta trong khế nghe mạch tạm. Người có quyền lấy bản chữ ở Dưỡng Mạch Viện không nhiều."
+
+"Có ta."
+
+"Có ngươi."
+
+"Ta cũng có quyền chạm vào lịch nghe mạch của ngươi, hồ sơ phản ứng dưới suối, ghi chú vạch lam." Kỷ Thành tự nói tiếp. "Nếu cần giả một nét chữ đủ giống, ta làm được."
+
+Lâm Thất hơi nhíu mày.
+
+Người bị nghi thường giải thích mình không thể làm. Kỷ Thành lại nói hắn có thể.
+
+"Vậy ngươi làm không?"
+
+"Không."
+
+"Chứng minh."
+
+Kỷ Thành cười rất nhạt. "Ngươi học Tạ Thanh Nghi nhanh."
+
+"Không học thì chết nhanh."
+
+Câu ấy làm nụ cười của Kỷ Thành tắt đi.
+
+Hắn kéo ngăn bàn, lấy ra một thẻ ghi giờ màu xanh nhạt. "Ngày thẻ Mạnh Tề được lập, hộp sao chữ ký khế nghe mạch mở hai lần. Lần đầu do Tần sư huynh kiểm bản chính, có đủ dấu. Lần hai ghi bằng quyền của ta."
+
+Lâm Thất nhìn hắn.
+
+"Ngươi tự đưa chứng cứ bất lợi?"
+
+"Nếu ta không đưa, ngươi sẽ tìm cách lấy từ Tạ Thanh Nghi. Khi đó nó vẫn bất lợi, lại mất thêm một ngày."
+
+"Lần hai là ngươi mở?"
+
+"Không."
+
+"Nhưng dùng quyền của ngươi."
+
+"Đúng."
+
+Kỷ Thành đặt thẻ ghi giờ xuống. Trên đó có dòng mở hộp vào giờ Mùi ba khắc, thời điểm Lâm Thất đang ở y phòng đối chứng dấu thề Mạnh Tề. Người mở dùng quyền Kỷ Thành, mục đích ghi: bổ sung bản sao chữ ký đối chiếu phụ.
+
+"Ngươi ở đâu lúc đó?"
+
+"Cửa ngoài khu mạch."
+
+"Ai chứng?"
+
+"Không ai ngươi có thể dùng." Kỷ Thành đáp. "Người ở đó đều thuộc Dưỡng Mạch Viện."
+
+Lâm Thất không vội nói.
+
+Kỷ Thành có quyền, có dấu giờ bất lợi, có lý do bị đổ tội. Nhưng nếu hắn thật sự làm, hắn không cần đưa thẻ này ra. Hắn có thể để Lâm Thất tự lạc trong danh sách người có quyền, hoặc để khế phòng chặn ngay từ đầu.
+
+"Quyền của ngươi bị dùng bằng cách nào?"
+
+"Mượn quyền."
+
+"Ai mượn?"
+
+"Không biết."
+
+"Nội viện cho mượn quyền không cần biết người mượn?"
+
+Kỷ Thành nhìn thẳng hắn. "Cần. Vì vậy ta nói có người dùng quyền của ta, không nói ta cho mượn."
+
+Lâm Thất hiểu một phần.
+
+Quyền truy cập trong Dưỡng Mạch Viện không chỉ là thẻ ngọc bên hông. Muốn mượn quyền của một người khi người đó không có mặt, phải có vật bảo lãnh đủ khiến cửa hộp tin rằng trách nhiệm vẫn có người gánh.
+
+"Vật bảo lãnh là gì?"
+
+Kỷ Thành lấy thêm một bản ghi nhỏ. "Bị che tên. Chỉ hiện loại vật: thẻ chuông phụ."
+
+Tim Lâm Thất nặng xuống.
+
+Chuông.
+
+Từ chuông chủ trên mặt đất đến hàng thẻ đang thở, chữ ấy luôn đi cùng thứ không nên chạm.
+
+"Ngươi từng thấy thẻ chuông phụ nào quanh La Bân không?" Lâm Thất hỏi.
+
+"Ta không quản bàn nhiệm vụ thấp."
+
+"Nhưng ngươi biết có."
+
+Kỷ Thành không đáp ngay.
+
+"Kỷ Thành," Lâm Thất nói, "ngươi không cần làm người tốt. Chỉ cần đừng để người khác dùng quyền của ngươi giết người rồi đổ cho ta."
+
+Rất lâu sau, Kỷ Thành nói: "La Bân từng đưa một thẻ chuông phụ vào cửa ngoài, nói là vật bảo lãnh nhiệm vụ bẩn cấp thấp. Ta thấy một lần, không giữ bản sao."
+
+"Khi nào?"
+
+"Trước khi Mạnh Tề chết ba ngày."
+
+Lâm Thất thu thẻ ghi giờ.
+
+Kỷ Thành đưa tay giữ mép thẻ. "Dùng ta làm mồi được, nhưng đừng kéo ta vào lời thề rẻ của La Bân. Ta không phát mẫu."
+
+"Ta chưa tin ngươi đến mức đó."
+
+"Tốt." Kỷ Thành buông tay. "Tin vừa đủ để tra tiếp. Đừng tin đủ để chết thay."
+
+Ra khỏi Dưỡng Mạch Viện, Lâm Thất cất thẻ ghi giờ vào túi trong.
+
+Kỷ Thành vừa tự đặt một nhát dao lên bàn.
+
+Nhát dao ấy có thể cắt dây khỏi cổ hắn, cũng có thể chứng minh người khác đã mượn danh hắn để lấy chữ ký của Lâm Thất.

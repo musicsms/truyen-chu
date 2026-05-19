@@ -1,0 +1,111 @@
+# Chương 74: Quyền Bị Mượn
+
+Thẻ chuông phụ không nên xuất hiện ở bàn nhiệm vụ thấp.
+
+Tạ Thanh Nghi nghe xong chuyện Kỷ Thành, câu đầu tiên là như vậy.
+
+"Nó thuộc đâu?" Lâm Thất hỏi.
+
+"Thuộc hệ chuông lệnh, dùng khi một việc không đủ mở chuông chủ nhưng cần mượn tiếng chuông làm bảo lãnh." Nàng đặt thẻ ghi giờ của Kỷ Thành dưới đèn. "Nói đơn giản, nó là vật cho người dưới vay danh người trên."
+
+"Vay danh cũng ghi nợ?"
+
+"Ghi. Người dùng thẻ phụ làm sai, người cấp thẻ phụ chịu lỗi quản. Người bị mượn quyền nếu không phản chứng, cũng bị kéo vào trách nhiệm."
+
+Vì vậy Kỷ Thành mới đưa chứng cứ bất lợi cho chính mình.
+
+Nếu hắn im, quyền của hắn đã bị dùng. Nếu hắn nói, hắn thành mồi để truy người cầm thẻ chuông phụ.
+
+Tạ Thanh Nghi xin đối chiếu vật bảo lãnh bằng danh nghĩa kiểm lỗi mượn quyền Dưỡng Mạch Viện. Lý do đủ hẹp để không đụng thẳng chuông chủ, đủ đúng để khế phòng không thể gạt đi.
+
+Tôn chấp sự cho phép xem sổ vật, nhưng chỉ một khắc.
+
+Một khắc ấy giống một chén nước đặt trước người khát trong khi có người cầm roi đứng bên.
+
+Sổ vật bảo lãnh dày hơn Lâm Thất tưởng. Nhiệm vụ trong tông môn vay danh liên tục: mượn thẻ kho để mở cửa phụ, mượn dấu y phòng để chuyển thuốc, mượn quyền nội viện để chép bản, mượn chuông phụ để đi qua nơi người thấp không nên đi qua.
+
+Tạ Thanh Nghi lật rất nhanh.
+
+"Giờ Mùi ba khắc," Lâm Thất nhắc.
+
+"Ta biết."
+
+Nàng tìm đến ngày thẻ Mạnh Tề được lập. Dòng vật bảo lãnh tương ứng đã bị che nửa tên, nhưng loại vật còn rõ:
+
+```text
+Thẻ chuông phụ số Bính-mười bảy, bảo lãnh mở hộp chữ ký tạm, thời hạn nửa khắc.
+```
+
+Người bảo lãnh bị ghi tắt: L.B.
+
+Lâm Thất nhìn hai chữ ấy.
+
+La Bân.
+
+Nhưng viết tắt không đủ.
+
+Tạ Thanh Nghi tiếp tục lật ngược sổ. "Một thẻ chuông phụ phải có đường xuất nhập."
+
+Trước đó ba ngày, thẻ Bính-mười bảy từng ra khỏi kho vật bảo lãnh. Lý do: xử lý nhiệm vụ bẩn cấp thấp khu mạch phụ. Người nhận: La Bân.
+
+Dấu ký rất nhỏ, nhưng cùng nét cong cuối trên mẫu thệ phụ vụ.
+
+Lâm Thất vừa định nói, Tạ Thanh Nghi đã đặt ngón tay lên môi.
+
+Ngoài hành lang có tiếng bước chân.
+
+Kỷ Thành bước vào cùng một đệ tử nội viện khác. Hắn nhìn thấy sổ vật trên bàn, ánh mắt không đổi, chỉ nói: "Ta đến đối chiếu quyền bị mượn."
+
+Tôn chấp sự cau mày. "Việc này có khế phòng xử lý."
+
+"Quyền của ta bị ghi." Kỷ Thành đưa thẻ ngọc. "Nếu khế phòng xử lý mà không có người bị mượn quyền, kết luận thiếu một bên."
+
+Hắn tự đặt mình vào bàn.
+
+Tạ Thanh Nghi hiểu ngay. Nàng đẩy sổ vật sang một góc đủ để Kỷ Thành nhìn thấy dòng Bính-mười bảy, nhưng không đủ lộ hết ghi chú cho người ngoài cửa.
+
+Kỷ Thành đọc xong, nói: "Ta xác nhận giờ Mùi ba khắc không có mặt ở hộp chữ ký. Nếu vật bảo lãnh là thẻ chuông phụ Bính-mười bảy, xin truy người nhận thẻ ba ngày trước."
+
+Tôn chấp sự không vui, nhưng không thể bác.
+
+Lâm Thất nhìn Kỷ Thành. Người này chấp nhận để tên mình treo trong biên bản, đổi lấy quyền yêu cầu truy vật.
+
+Tin vừa đủ.
+
+Đúng như hắn nói.
+
+Sổ vật được lật đến dòng xuất thẻ. Tôn chấp sự tự đọc tên người nhận:
+
+"La Bân."
+
+Không ai trong phòng tỏ ra ngạc nhiên quá mức. Trong khế phòng, ngạc nhiên cũng là một loại lời khai.
+
+Tạ Thanh Nghi yêu cầu chép bản đối chiếu. Tôn chấp sự cho chép phần giờ, loại vật, người nhận, không cho chép dấu nguồn cấp.
+
+"Dấu nguồn không liên quan đối chiếu quyền," ông nói.
+
+Tạ Thanh Nghi nhìn ông. "Dấu nguồn quyết định ai cấp thẻ chuông phụ cho La Bân."
+
+"Chưa đến bước đó."
+
+Ông đóng sổ.
+
+Nhưng trong khoảnh khắc trước khi bìa sổ khép lại, Lâm Thất vẫn thấy góc dấu nguồn ở mép dòng. Không phải dấu lớn, chỉ là một vết triện nhỏ màu xanh sẫm.
+
+Tạ Thanh Nghi cũng thấy.
+
+Sắc mặt nàng không đổi, nhưng ngón tay giữ thước đồng siết chặt hơn nửa phần.
+
+Ra khỏi khế phòng, nàng không nói cho đến khi đi qua hết ba khúc hành lang.
+
+Lâm Thất hỏi: "Dấu ấy là gì?"
+
+Tạ Thanh Nghi dừng lại.
+
+"Dấu phụ nhà họ Tạ."
+
+Gió qua hành lang rất nhẹ, nhưng Lâm Thất cảm thấy giấy trong tay mình nặng hơn.
+
+Thẻ chuông phụ từng nằm trong tay La Bân không chỉ kéo Dưỡng Mạch Viện vào vụ giả chữ ký.
+
+Nó còn kéo nhà giữ khế của Tạ Thanh Nghi vào giữa chuỗi giấy chết.
