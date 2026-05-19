@@ -1,0 +1,168 @@
+# Chương 48: Trụ Mười Bảy Đang Tỉnh
+
+Nếu trụ mười bảy đang tỉnh, thời gian để chạm vào nó sẽ không dài.
+
+Lâm Thất hiểu điều này ngay khi nhịp đáp vang lên dưới nền phòng. Một người bị buộc vào mạch không thể tỉnh lâu tùy ý. Tỉnh nghĩa là đau rõ hơn. Tỉnh nghĩa là nghe thấy chuông, nghe thấy nước, nghe thấy thân mình bị dùng để giữ một thứ lớn hơn mình. Nếu người giữ chuông phát hiện trụ mười bảy đáp nhịp lạ, họ sẽ ru nó lại, siết nó lại, hoặc chuyển người dự vào nhanh hơn.
+
+Hắn không gõ lần thứ hai trong đêm đó.
+
+Muốn xác nhận một người sống, không được vì vui mà giết người ấy bằng lần gọi thừa.
+
+Sáng hôm sau, cổ tay trái của hắn có một vệt đỏ lẫn xanh. Không phải máu chảy ra ngoài. Máu như đông dưới da, màu lạnh. Phùng y sư nhìn thấy liền mắng một câu rất nặng, rồi kéo hắn vào phòng trong.
+
+"Ngươi đáp chuông?"
+
+"Không đáp bằng khí."
+
+"Ngươi gõ?"
+
+Lâm Thất im lặng.
+
+Phùng y sư lấy thuốc đắp lên cổ tay hắn, lực tay mạnh hơn thường ngày. "Gõ cũng là đáp. Khác nhau ở chỗ người giữ chuông nghe chậm hơn."
+
+"Vậy còn bao lâu?"
+
+"Ta không phải người giữ chuông."
+
+"Ý ta là trước khi họ phát hiện."
+
+Phùng y sư nhìn hắn. "Nếu chỉ một lần, có thể là nhiễu. Nếu lần thứ hai cùng nhịp, không còn là nhiễu."
+
+Một lần.
+
+Lâm Thất nhận lấy thời hạn ấy.
+
+"Ta cần nghe từ xa," hắn nói.
+
+"Ngươi cần sống."
+
+"Hai việc này có thể cùng lúc không?"
+
+"Có, nếu ngươi biết dừng."
+
+Phùng y sư đưa hắn một cây kim bạc nhỏ. "Khi cổ tay mất cảm giác, đâm vào huyệt này. Nếu không đau, lập tức dừng Dẫn Khê. Đừng tin cảm giác của mình khi mạch lạnh. Người sắp chết rét thường tưởng mình ấm."
+
+"Giá?"
+
+"Hai điểm."
+
+Lâm Thất trả.
+
+Miễn phí thường làm người ta nợ tình. Hắn hiện tại không mua nổi thêm loại nợ ấy cho Phùng y sư.
+
+Đêm thứ hai, hắn không ở phòng. Hắn đến rìa rừng trúc khô, cách kho nước phụ hai mươi bước, nơi tiếng nước chảy ngược rõ nhưng tuần tra không đi sát. Tạ Thanh Nghi không đến. Hắn không nói với nàng. Việc này nếu thất bại, ít nhất trong hồ sơ không có dấu chân nàng.
+
+Nhưng Chu Uyển đến.
+
+"Ta không hỏi ngươi làm gì," nàng nói. "Ta chỉ đứng xa canh."
+
+"Ngươi không nên dính thêm."
+
+"Ta đã ký bảo lãnh rồi. Dính ít hay nhiều cũng bị nhớ." Nàng dựa vào thân trúc khô. "Làm việc của ngươi. Nếu ngươi ngã, ta gọi người. Nếu ngươi bị tuần tra bắt, ta nói ngươi đi tiểu."
+
+"Lý do đó quá xấu."
+
+"Nửa đêm ở rừng trúc, lý do xấu nhất lại hợp lý nhất."
+
+Lâm Thất không cãi.
+
+Hắn đặt viên đá đen lên lòng bàn tay phải, thẻ gỗ Lâm Trường An đặt dưới đá. Không gõ. Chỉ để hai thứ chạm nhau. Sau đó hắn vận Dẫn Khê Quyết, kéo khí rất mỏng qua ngực, dừng trước cổ tay trái, mở một khe nghe.
+
+Tiếng nước đến trước.
+
+Rồi tiếng chuông.
+
+Không phải chuông điểm danh rõ như đêm trước, mà là dư âm trong lòng đá. Ba ngắn, một dài, nhưng bị kéo rất xa. Lâm Thất không đáp. Hắn để nhịp đi qua, đếm theo hơi thở. Đến nhịp thứ ba, cổ tay trái bắt đầu đau.
+
+Kim bạc trong tay phải chạm vào huyệt Phùng y sư chỉ.
+
+Đau.
+
+Hắn còn nghe được.
+
+Sau tiếng chuông là tiếng thở.
+
+Rất yếu.
+
+Nó không giống tiếng thở của người ngủ. Người ngủ thở bằng phổi. Tiếng này như thở bằng đá, mỗi nhịp phải kéo qua nhiều lớp nước. Nhưng trong nhịp yếu ấy có một thói quen nhỏ: trước mỗi hơi dài, nó dừng một thoáng rất ngắn, giống người từng bị bệnh phổi lúc nhỏ và quen giữ hơi trước khi bước vào chỗ lạnh.
+
+Lâm Thất biết thói quen ấy.
+
+Mùa đông ở thôn, Lâm Trường An mỗi lần xuống giếng đều dừng như vậy. Mẹ từng mắng anh: "Muốn nhảy xuống nước hay sao mà nín thở?" Lâm Trường An cười, nói nín trước một hơi thì lạnh không chui vào ngực.
+
+Ký ức ấy đập vào Lâm Thất mạnh hơn mọi tiếng chuông.
+
+Hắn suýt gọi tên.
+
+Môi đã mở.
+
+Nhưng Tôn Lão Nhị nói: tên kéo hồn về thân, thân bị buộc vào mạch, gọi tên là kéo cả mạch đau.
+
+Lâm Thất cắn vào đầu lưỡi.
+
+Máu nóng trong miệng giữ hắn ở trên mặt đất.
+
+Không gọi.
+
+Không gọi.
+
+Không gọi.
+
+Hắn dùng viên đá đen gõ rất nhẹ lên thẻ gỗ.
+
+Không phải ba ngắn một dài. Nhịp ấy đã bị chuông biết. Hắn gõ một nhịp khác, cũ hơn, nhỏ hơn: hai ngắn, dừng, một dài. Đó là nhịp hai anh em dùng khi còn nhỏ để báo "ta ở ngoài cửa" mà không đánh thức cha mẹ.
+
+Âm đá chìm xuống đất.
+
+Không có đáp ngay.
+
+Cổ tay trái đột nhiên mất cảm giác ở hai ngón. Lâm Thất lập tức dùng kim bạc đâm vào huyệt.
+
+Không đau.
+
+Hắn phải dừng.
+
+Ngay khi hắn chuẩn bị cắt Dẫn Khê, từ dưới rất sâu truyền lên một nhịp yếu.
+
+Hai ngắn.
+
+Dừng.
+
+Một dài.
+
+Không phải chuông.
+
+Không phải điểm danh.
+
+Là người.
+
+Lâm Thất cắt Dẫn Khê ngay lập tức. Đau muộn tràn lên, lạnh đến mức mắt hắn tối đi. Chu Uyển lao tới đỡ hắn trước khi hắn quỵ xuống.
+
+"Ngươi gọi?"
+
+"Không."
+
+"Vậy sao mặt ngươi như chết?"
+
+Lâm Thất nắm chặt viên đá đen trong tay, đến khi cạnh đá cấn vào lòng bàn tay.
+
+"Hắn nhớ."
+
+Chu Uyển không hỏi ai.
+
+Có những câu không cần hỏi, vì hỏi ra sẽ làm người nói không giữ nổi mặt.
+
+Đêm ấy, Sổ Nợ chỉ hiện một dòng:
+
+```text
+Thân tình làm vật dẫn.
+Nợ mạch tăng lãi.
+```
+
+Dưới dòng chữ, mép giấy thấm ra một giọt nước đỏ rất nhạt.
+
+Lâm Thất nhìn giọt nước ấy đến sáng.
+
+Hắn đã xác nhận trụ mười bảy còn tỉnh.
+
+Nhưng cũng đã để thứ dưới lòng suối biết rằng người trên mặt đất không chỉ nghe chuông, mà còn có ký ức để gõ vào người bên trong.

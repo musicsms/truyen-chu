@@ -1,0 +1,161 @@
+# Chương 49: Gõ Ba Ngắn Một Dài
+
+Sáng hôm sau, khu dưỡng mạch siết tuần tra.
+
+Tin đến rất nhanh. Bảng nhiệm vụ chưa mở, đệ tử ngoại môn đã thấy hai đội nội môn đi qua rừng trúc khô. Kho nước phụ bị niêm thêm một lớp phù. Đường đá phía bắc đặt thêm cột mốc. Trên cột mốc có dòng mới:
+
+`Đêm qua mạch phụ có phản ứng. Đệ tử không phận sự không được lại gần.`
+
+Không phận sự.
+
+Lâm Thất đọc bốn chữ ấy từ xa, cổ tay trái giấu trong tay áo. Hai ngón tay vẫn tê. Kim bạc của Phùng y sư đâm vào không đau như cũ. Hắn biết mình phải để mạch nghỉ, nhưng bảng y phòng đã dán tên hắn trước khi hắn kịp đến.
+
+`Lâm Thất, Dẫn Khê tầng đầu, phản ứng mạch bất thường trong đêm, giờ Tỵ đến y phòng phụ kiểm.`
+
+Một tín hiệu tình thân, khi đi qua hệ thống, lập tức thành phản ứng mạch bất thường.
+
+Chu Uyển đứng cạnh hắn, giọng thấp: "Họ biết?"
+
+"Biết có phản ứng. Chưa chắc biết nhịp."
+
+"Nếu biết nhịp?"
+
+"Ta đã bị đưa đi rồi."
+
+Tạ Thanh Nghi đến sau, trong tay có bản sao lệnh kiểm. Nàng không hỏi hắn đêm qua làm gì. Hỏi cũng không nên, vì nếu hắn trả lời, nàng sẽ phải mang một phần sự thật vào mắt khi đối diện khế phòng.
+
+"Lệnh kiểm chỉ ghi dấu tay trái phát sáng," nàng nói. "Không ghi tiếng gõ."
+
+"Ai báo?"
+
+"Dưỡng Mạch Viện tự phát hiện."
+
+"Vậy dưới đó có trận nghe phản ứng."
+
+"Hoặc người giữ chuông nghe."
+
+Cả ba im lặng một nhịp.
+
+Giờ Tỵ, Lâm Thất đến y phòng phụ kiểm. Phòng vẫn là gian đá sau kho thuốc, nhưng hôm nay không chỉ có Phùng y sư và Mã chấp sự. Kỷ Thành cũng ở đó. Bên cạnh hắn là một người Lâm Thất chưa gặp, áo lam đậm hơn, tay áo thêu hình chuông rất nhỏ.
+
+Mã chấp sự đọc phiếu: "Đêm qua mạch phụ bắc có phản ứng, dấu tay trái của ngươi phát sáng cùng thời điểm."
+
+Lâm Thất nhìn phiếu. "Xin ghi: đệ tử không rời phòng trong giờ cấm."
+
+"Ngươi có chứng cứ?"
+
+"Không. Nhưng nếu không ghi, phiếu sẽ mặc định đệ tử có mặt ở khu bắc."
+
+Phùng y sư ho một tiếng. "Ghi đi. Đây là kiểm thân, không phải xét tội."
+
+Mã chấp sự khó chịu, nhưng viết.
+
+Người áo lam đậm lần đầu mở miệng: "Đặt tay lên bàn."
+
+Giọng hắn rất nhẹ, nhưng khi hắn nói, Kỷ Thành lập tức lùi nửa bước. Người này chức cao hơn Kỷ Thành.
+
+Lâm Thất đặt tay trái lên bàn đồng.
+
+Trận văn sáng lên.
+
+Đau đến chậm hơn thường ngày, vì hai ngón còn tê. Nhưng đường xanh dưới da lập tức phát sáng mờ. Mã chấp sự cúi xuống ghi. Người áo lam đậm nhìn tay hắn như nhìn một vật liệu tốt.
+
+"Ngươi nghe thấy gì trong đêm?" người đó hỏi.
+
+"Nước."
+
+"Nước gì?"
+
+"Nước trong mạch."
+
+"Có tiếng khác không?"
+
+Lâm Thất đáp chậm nửa nhịp: "Có tiếng đau."
+
+Mã chấp sự nhíu mày. "Trả lời rõ."
+
+"Đệ tử không biết gọi tên tiếng ấy."
+
+Người áo lam đậm mỉm cười. "Không biết gọi tên, hay không dám gọi?"
+
+Lâm Thất ngẩng mắt. "Y phòng từng dặn không gọi tên trong mạch."
+
+Phùng y sư nhìn xuống bàn, như câu ấy không liên quan mình.
+
+Kỷ Thành đứng bên cạnh, mặt không đổi.
+
+Người áo lam đậm thu nụ cười. "Ai dặn?"
+
+"Nhiều người."
+
+"Gồm ai?"
+
+"Người dẫn đường dưới suối từng nói nghe gì cũng coi như tiếng nước."
+
+Kỷ Thành lúc này mới nhìn hắn.
+
+Lâm Thất không né ánh mắt ấy. Hắn không nói dối. Kỷ Thành thật sự đã nói vậy. Một câu từng dùng để bịt miệng đệ tử, giờ cũng có thể thành tấm chắn cho đệ tử.
+
+Mã chấp sự gõ bút. "Dấu phản ứng sáng. Ghi mức hai."
+
+Phùng y sư lập tức nói: "Mức một. Không có mất khí, không có ngất, không có phù mạch lan quá khuỷu."
+
+"Hai ngón tê."
+
+"Tê do dùng thuốc lạnh sai cách cũng có thể có."
+
+Mã chấp sự nhìn ông. "Ngươi muốn bảo lãnh?"
+
+"Ta ghi nhận y chứng." Phùng y sư lạnh giọng. "Đừng đổi chữ."
+
+Người áo lam đậm nhìn cảnh ấy, rồi nói: "Mức một. Theo dõi."
+
+Mã chấp sự đành sửa.
+
+Lâm Thất hiểu Phùng y sư vừa kéo hắn khỏi một dòng có thể chuyển thành lệnh bảo hộ tiến cảnh.
+
+Kiểm tra xong, Kỷ Thành đi theo hắn ra ngoài. Đến hành lang vắng, Kỷ Thành nói rất nhỏ:
+
+"Đêm qua ngươi không nên gõ."
+
+Lâm Thất dừng bước.
+
+Kỷ Thành không nhìn hắn, chỉ nhìn sân đá. "Gõ ba ngắn một dài là chuông. Gõ nhịp khác là người. Người giữ chuông phân biệt được."
+
+"Vậy vì sao ta vẫn ở đây?"
+
+"Vì nhịp ấy quá yếu. Họ chưa chắc từ trên hay từ dưới."
+
+"Hứa Đình đâu?"
+
+"Đang kiểm."
+
+"Còn tỉnh?"
+
+"Ngươi hỏi quá nhiều."
+
+"Ngươi trả lời quá ít."
+
+Kỷ Thành quay sang. Trong mắt hắn có mệt mỏi rất sâu. "Ít là thứ duy nhất ta trả nổi."
+
+Hắn đi trước khi Lâm Thất hỏi thêm.
+
+Lâm Thất trở về phòng, không vận Dẫn Khê. Nhưng đến đêm, thẻ gỗ trong hòm tự lạnh. Viên đá đen nằm trên thẻ, không ai chạm mà khẽ rung.
+
+Một nhịp truyền lên.
+
+Hai ngắn.
+
+Dừng.
+
+Một dài.
+
+Lần này Lâm Thất không đáp.
+
+Hắn chỉ đặt tay phải lên hòm, nước mắt không rơi, cổ họng không phát ra tiếng. Hắn phải giả vờ với cả căn phòng rằng mình không hiểu.
+
+Ngoài cửa, tiếng bước chân dừng lại rất lâu.
+
+Sáng hôm sau, Lục Hoài Chân xuất hiện trong y phòng phụ kiểm. Ông nhìn Lâm Thất bằng ánh mắt ôn hòa như cũ, rồi hỏi:
+
+"Ngươi và Lâm Trường An trước đây có từng dùng ám hiệu nào không?"
