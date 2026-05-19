@@ -1,0 +1,199 @@
+# Chương 44: Tiếng Điểm Danh
+
+Tôn Lão Nhị bị chuyển viện bệnh mạch trong ba ngày.
+
+Tin ấy dán ở bảng y phòng, không ở bảng nhiệm vụ. Mực dùng là màu xám, chữ nhỏ, nằm giữa danh sách phát thuốc và giờ đổi băng. Nếu Lâm Thất không cố ý xem, hắn có thể đi qua mười lần mà không thấy.
+
+`Tôn Lão Nhị, phiếu theo dõi vị trí, chuyển viện bệnh mạch kiểm dưỡng.`
+
+Phiếu theo dõi vị trí.
+
+Không phải dưỡng mạch.
+
+Không phải cảm hàn mạch.
+
+Vị trí.
+
+Lâm Thất đứng trước bảng lâu hơn một hơi thở, rồi rời đi. Đứng lâu sẽ bị người y phòng nhớ. Hắn đến kho nước cũ, tìm chỗ Chu Uyển thường tránh gió sau giờ đổi thư. Nàng đến muộn nửa khắc, tay áo dính bụi giấy.
+
+"Ta không lấy được lệnh chuyển," nàng nói trước.
+
+"Ta chưa hỏi."
+
+"Mặt ngươi hỏi rồi."
+
+Lâm Thất đưa nàng xem dòng mình chép lại. Chu Uyển đọc xong, sắc mặt trầm xuống. "Phiếu theo dõi vị trí là gì?"
+
+"Ta đang muốn biết."
+
+"Tôn Lão Nhị nói được không?"
+
+"Nói nhiều sẽ đau."
+
+"Vậy ngươi định dùng Sổ?"
+
+Lâm Thất lắc đầu.
+
+Tạ Thanh Nghi từng đặt điều khoản: không dùng Sổ đọc người bệnh mạch. Lúc đó nàng chưa biết Tôn Lão Nhị sẽ thành manh mối này. Nhưng điều khoản không phải chỉ có giá trị khi dễ giữ.
+
+"Ta sẽ trả một món nợ nhỏ," hắn nói.
+
+Chu Uyển nhìn hắn. "Nghe như việc ngu."
+
+"Có thể."
+
+"Giá?"
+
+"Một nhịp đau."
+
+"Ngươi còn biết đau ít à?"
+
+"Ít hơn đọc thẳng người bệnh."
+
+Chu Uyển không thích, nhưng không cản. Nàng chỉ nói: "Ta canh ngoài. Nếu ngươi ngã, ta kéo ngươi đi. Nếu hắn ngã, ta gọi y phòng. Nếu cả hai ngã, ta sẽ nói hai ngươi tranh thuốc."
+
+"Lý do xấu."
+
+"Lý do xấu dễ tin hơn lý do tốt."
+
+Họ tìm Tôn Lão Nhị ở khu bệnh mạch sau y phòng. Nơi này không khóa, nhưng ai cũng tự tránh. Bên trong có mùi thuốc lạnh, mùi vải ẩm, và mùi người lâu ngày không ra nắng. Tôn Lão Nhị ngồi trên giường tre cuối phòng, trước mặt đặt một bát cháo loãng chưa ăn.
+
+Thấy Lâm Thất, hắn cười. "Ngươi lại nghe sai?"
+
+"Ta đến trả thuốc."
+
+"Thuốc không đủ trả."
+
+"Vậy trả một nhịp."
+
+Tôn Lão Nhị im.
+
+Mắt hắn trong lại rất nhanh, nhanh đến đáng sợ. Người bệnh lâu ngày đôi khi tỉnh táo trong những việc liên quan đến đau hơn người khỏe.
+
+"Ai dạy ngươi?"
+
+"Không ai. Sổ nói ta nghe thay người một nhịp. Ta muốn biết nếu chủ động trả một nhịp, ngươi nói được bao nhiêu."
+
+"Ngươi có biết trả vị trí là gì không?"
+
+"Không."
+
+"Tốt. Biết rồi sẽ sợ."
+
+Lâm Thất ngồi xuống mép giường bên cạnh, cách hắn một khuỷu tay. Chu Uyển đứng ngoài cửa, mặt lạnh.
+
+Tôn Lão Nhị giơ tay quấn vải. "Đừng dùng Sổ nhìn ta."
+
+"Không dùng."
+
+"Đừng gọi tên trong chuông."
+
+"Không gọi."
+
+"Đừng hỏi quá mười câu."
+
+"Được."
+
+Tôn Lão Nhị dùng móng tay gõ vào cổ tay mình: ba ngắn, một dài. Lâm Thất vận Dẫn Khê, nhưng không đáp bằng khí. Hắn chỉ mở một khe nhỏ ở cổ tay trái, để đau đi qua.
+
+Đau đến rất nhanh.
+
+Không phải đau của hắn thường ngày. Đau này có hình dáng rõ hơn: như một cái móc nhỏ móc vào xương cổ tay, kéo về phía dưới. Hắn nghiến răng, giữ hơi thở. Sổ Nợ trong áo nóng lên rồi lạnh đi.
+
+Tôn Lão Nhị thở phào, như có ai vừa tháo một sợi dây khỏi cổ.
+
+"Mười câu," Lâm Thất nói.
+
+"Hỏi."
+
+"Phiếu vị trí là gì?"
+
+"Là chỗ ngươi bị ghi để thay khi người trong mạch hụt hơi."
+
+"Ngươi từng thay ai?"
+
+"Không được biết tên."
+
+"Vậy biết số?"
+
+"Chuông tám."
+
+"K-T-17 là gì?"
+
+Tôn Lão Nhị co giật một cái. Lâm Thất lập tức dừng khí, nhưng hắn khoát tay.
+
+"Hỏi tiếp. Đã trả rồi."
+
+"K-T-17 là gì?"
+
+"Không phải người. Là trụ."
+
+"Trụ mạch?"
+
+"Ừ."
+
+"Người trong trụ có tên không?"
+
+"Có, nhưng dưới đó tên bị cất."
+
+"Ai cất?"
+
+"Người giữ chuông."
+
+"Vì sao không gọi tên?"
+
+Tôn Lão Nhị nhìn hắn, đồng tử run nhẹ. "Tên kéo hồn về thân. Thân bị buộc vào mạch. Gọi tên là kéo cả mạch đau."
+
+Lâm Thất thấy cổ họng mình khô đi.
+
+"Người bên trong nghe được không?"
+
+"Có lúc."
+
+"Làm sao biết họ còn tỉnh?"
+
+"Chuông điểm danh. Người tỉnh đáp đúng nhịp. Người mê đáp chậm. Người chết không đáp, thẻ tắt."
+
+"K-T-17 còn đáp không?"
+
+Tôn Lão Nhị cười méo. "Ngươi hỏi câu thứ mười."
+
+Lâm Thất nhìn hắn.
+
+Tôn Lão Nhị nói rất khẽ: "Đáp. Nhưng không gọi tên. Nhớ kỹ, không gọi tên."
+
+Đau trong cổ tay Lâm Thất bỗng bị kéo mạnh. Tôn Lão Nhị lập tức cúi gập người, nôn ra một ngụm nước trong. Chu Uyển bước vào, nhưng Lâm Thất giơ tay ngăn.
+
+"Đủ rồi."
+
+Tôn Lão Nhị lau miệng, cười như khóc. "Ngươi trả một nhịp, ta nói mười câu. Lỗ rồi."
+
+"Ai lỗ?"
+
+"Cả hai."
+
+Ngoài hành lang có tiếng bước chân y phòng. Chu Uyển lập tức cầm bát cháo lên, nói lớn: "Ta đã bảo đừng tranh thuốc với người bệnh!"
+
+Lý do xấu quả nhiên dễ tin. Đệ tử y phòng đi ngang nhìn vào, thấy Tôn Lão Nhị nôn, Lâm Thất mặt trắng, Chu Uyển đang mắng, liền cau mày: "Muốn tranh thì ra ngoài. Người này ba ngày nữa chuyển viện, đừng gây thêm việc."
+
+Hắn đi rồi.
+
+Tôn Lão Nhị nằm xuống, mắt lại đục đi. Trước khi mất tỉnh táo, hắn kéo tay áo Lâm Thất, nói một câu cuối không tính trong mười câu:
+
+"Người bên trong không được gọi bằng tên. Chỉ được gọi bằng số chuông."
+
+Lâm Thất rời khu bệnh mạch với cổ tay trái gần như mất cảm giác. Đến ngoài sân, Chu Uyển mới hỏi:
+
+"Ngươi nghe được thứ muốn nghe chưa?"
+
+"Có."
+
+"K-T-17 là ai?"
+
+Lâm Thất nhìn về phía bắc, nơi kho nước phụ không còn trên bản đồ.
+
+"Không phải ai."
+
+Hắn siết tay lại, đau chậm nửa nhịp mới trở về.
+
+"Là chỗ anh ta bị biến thành."
