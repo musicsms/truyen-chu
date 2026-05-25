@@ -1,0 +1,19 @@
+{
+  "title": "Trà Nguội",
+  "slug": "tra-nguoi",
+  "genre": "kiếm hiệp trinh thám",
+  "total_chapters": 10,
+  "status": "complete",
+  "chapters": [
+    { "number": 1, "title": "Người Được Gọi" },
+    { "number": 2, "title": "Xác Và Chén Trà" },
+    { "number": 3, "title": "Bếp Và Vách Đá" },
+    { "number": 4, "title": "Vết Đỏ Trên Áo" },
+    { "number": 5, "title": "Thư Thất Và Tro Ấm" },
+    { "number": 6, "title": "Người Rót Trà" },
+    { "number": 7, "title": "Y Thư Và Sổ Ghi Danh" },
+    { "number": 8, "title": "Người Từ Làng Cũ" },
+    { "number": 9, "title": "Sổ Bếp Và Chữ Viết" },
+    { "number": 10, "title": "Trà Nguội Và Chuông Sáng" }
+  ]
+}
